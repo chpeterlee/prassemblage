@@ -9,6 +9,10 @@ import {
 } from "@portaljs/core";
 import { DefaultSeoProps } from "next-seo";
 
+const config = {
+  showSidebar: true,
+};
+
 const siteConfig: SiteConfig = {
   ...defaultConfig,
   ...userConfig,
