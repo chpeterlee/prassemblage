@@ -1,0 +1,71 @@
+- Release 1
+	- Level 1 Essay: [[Healightenment]] & Paradigm Shift Racetrack
+	- Level 2 Essay: The Newdle Endgames (design an Antivirus):
+		- Every problem on the planet, like the 10 years to eco-collapse and 12,000 children dying of preventable poverty per day, is like a lock that has a solution key.
+		- The problem is not that the solutions do not exist, or are not thinkable - it is that most do not understand the lock enough to pick it, and most don't have a key, and except for 1000 people on the planet, they don't have the skills to do either.
+		- The problem is compounded because 99% of people can't intake more than 2 or 3 new pieces of information per day. It takes 3 to 6 months to teach a modern human a new basic task, and it would take 10 years of full 40 hours a week coaching to train a new polymath (although some youngsters have just skipped this and taught themselves). Also, the bulk of modern societies have broken civic infrastructure and culture. It would take millions of dollars and 40+ years for people to get up to speed - which would be 30 years too late.
+		- Hence the only sane thing to do is to pay a few people to fix the planet, while constantly checking their work and making sure they're doing it right. Everyone else should be stuck in basically arts-based therapy, and have an automated proxy advocating for them for all the right things - universal basic income, health care, etc.
+		- They can be tested! Just check their bets with the few people on the planet who know how it works.
+	- Level 3 Essay: [[City on a Chill]]
+	- Level 4 Essay: Antifragile Peace Deal
+		- What are we working towards? Antifragile peace across the Intercity Planetary, with respect to the last 500 years of illegal capitalist extraction, the present crises, and an unimaginably beautiful adjacent possible blooming of planet-sized fruits.
+		- The last time the planet was in such existential danger was 500 million years ago when the magnetic field was in danger of collapsing and in the last inning, the planet's core locked balanced the ratio of liquid metals and crystallized minerals in order to stabilize its electromagnetic geodynamics - thus giving our magnetic shield the correct amount of amplification to shield us from the sun's heavier radiation - and enable the Cambrian Explosion of life on the surface which produced such an abundance of complexity that it created the wondrously stupid creatures known as humans who could put it at such existential risk - once again! :P
+	- Level 5 Essay: [[Different is More]]
+	- Level 6 Essay: Why are the America's so f**ked up infrastructurally?
+		- European humanism was propagated in the 14th Century from conversations occurring across the Intercity Planetary network of intellectuals, including probably information crossing back from the Amerindians to the Middle East by way of the Asian continents.
+		- Capitalism was invented in Germany by the Hanseatic League in 15th Century.
+		- Colonization of the Americas begins in the 15th Century, illegally extracts a crapton of silver and gold and kills hundreds of millions.
+		- All civic infrastructure is slapped on after the fact, in piecemeal fashion, so nothing connects to anything.
+		- Hence where we are at now; there are no functional civic organs in the U.S. Engaging with them proper is like spitting in quicksand. The best shot is to incentivize private entities to produce civic infrastructure a la government contractors - but with transparent and addressable endpoints and metrics, with 99% of it being botnets, automation and AI.
+	- Level 7 Essay: Centre Amasia and Geothermalpedia 6000
+		- Centre Amasia is coordinating with the Museum of Amasia and State Space to exhibit components of [[Geothermalpedia]]” via Inferential Reality, assemblaged from human and non-human agents on the surface of the Earth geocached in the tectonic plates and volcanoes of the Earth which both hold 6000x more energy than its oil reserves, thus being the longterm actual solution to the energy crises, and which are also drifting into a Neo-Pangean supercontinent called Amasia, reflecting the objective fact that in the 15th Century, the Amerindians were communicating with the Asians, who were communicating with African societies, who were communicating with proto Indo-European societies that all crossed in the Caucasus Region in the Mediterranean, where there is a city named Amasya, in Turkey, thus reiterating the fact that all populations on the planet are simply just humans on the surface of a planet, a shock to the amnesiac modern western society's culture which is grown from basically prisoners and slaves dunked into a incredibly complex and populated land which had produced cosmopolitan centers with regional equality ratings of 88% with population density higher than London, tasked with basically killing everyone and stealing everything, in varying levels of stupidity, which must obey the universe's physical laws of probability.}}
+	- Level 8 Essay: Who and how?
+		- Ethical Hackers & bots
+		- Conceptual Artists & Science
+		- Shrooms & Education
+- Release 2:
+	- Destructive weak [[inference]]s and fallacies:
+		- Entropy, warfare, fascism, exploitation, repression, fear, self-destruction.
+	- Non-destructive weak [[inference]]s and fallacies in autodidactic environments.
+		- Autodidacticism, self-organization, [[inference]].
+	- The Left - incorrect application of dialectics vs. correct application of dialectics:
+		- Either/or fallacies of Hegel or any other philosophy.
+		- Non-binary readings of Hegel's being/nothingness/becoming & thesis/antithesis/synthesis.
+			- Confined solely to transcendentals. Effective at error-checking pure logical errors, not effective at analyses of real-world systems.
+		- [[inference]] of many-to-infinite value topologics.
+		- Philosophical systems are like furniture. Load-bearing parts and surface parts.
+	- The Negentropic Left
+		- Knowledge is a topology of [[inference]]s open for human-machine teams.
+		- Comparative synthesis and comparative statistics.
+		- Generative abductive algorithms and negative manifold transductions.
+		- 7 dimensional checks. Principle of Negentropy creates a non-linear distribution of differentiations and capacities is net negentropic.
+		- All obey the Law of Negentropy. Humans are autodidactic and self organizing by nature some complexify in certain trajectories faster or slower than others.
+	- Infrastructure
+		- 7 Layer Betterverse
+- Release 3
+	- Human-Machine Teams
+	- Comparative Synthesis & Statistics
+		- the 8 disciplines
+	- Generative Negative Abductive Algorithm & Optimizing Manifold Transduction
+	- Outputs High Likelihood Low Energy Strategies
+	- The greater efficacy of non-specialization
+		- Edge of chaos, adjacent possibilities
+		-
+	- 9 Comparative Dimensions of a Pro Forma or Pre-mortem
+		- **Net negentropic logics and statistical model or net entropic logics and statistical model?**
+		- **High or Low Likelihood?**
+		- **High or Low Accuracy?**
+		- **High or Low Definition?**
+		- **High or Low Modularity?**
+		- **High or Low Time Complexities?**
+		- **High or Low Internal Robustness?**
+		- **High or Low Distributed Non-linearity?**
+		- **High or Low Frequency of Exposure to Catastrophic or Catalyzing Externality?**
+	- 7 Fallacies
+		- Either/or
+		- Not understanding differing epistemic recipes and ontological steady states
+		- Assuming incommeasurability
+		- Reductionism & Essentialism
+		- Linearity & Representationalism
+		- Not utilizing analytic design
+		- Not utilizing quantum error checking (non-linear superpositions)
