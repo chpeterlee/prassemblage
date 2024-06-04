@@ -1,0 +1,63 @@
+- Speed interpretation of philostatistics.
+- Ultra high goal.
+- Produce hits, play with AI.
+- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]], DERPA, [[Regener888 (Main)]], ICP.
+- # Vow 9: The Fragility Market
+- Most Artists and language based professionals are reductionists; sciences and engineering are constructionists.
+- Without a mixture of philostatistical literacy and a wide range of ethical technical imagination, any endeavor has an 80% chance of introducing more risk and entropy into a system.
+- Hence the only market that makes sense is a market of fragility, in which individuals are aid for actively decreasing the risks of fragility and entropy - or for simply not emitting extra fragility.
+- # Vow 10: F--k Heaven, Stay the Hell Out of Hell
+- The public can't do anything, accuracy is an alien language to most, only a few can build Web 4 Postwork systems.
+- The public can watch and listen, buy and share; not organize. And eat shrooms.
+- Cultural and knowledge producers can deconstruct; not synthesize accurately. And eat shrooms.
+- Answer: Automate the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]], sell shrooms, pass on some new negation for culture and knowledge, f--k heaven, stay the Hell out of Hell.
+  ---
+  Chat GPT - ecology of institutions.
+  
+  Fictional perspectives / pretend
+  tik tok /
+- Blackjack
+- Folk probability
+- Philostatistics
+- Complex Time = Khairos
+- Bounded Rationality and Adjacent Possible Qualitative Assemblages.
+- Choose your own Significance
+- Attractor as a structure of mediations.
+  
+  Not ego death; ergodeath.
+  
+  The Philostatiscal Bomber.
+  
+  ---
+- characters [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], flow Rogan and Gwyneth paltroll food.
+- Funnel people to their own capacity to prompt.
+- Frame the AI dialogues via live dialogue in [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
+- Get space in galleries and etc
+- Chat GPT interaction
+- Get it to train a custom dataset.
+- Attractor production /
+- Alternative models.
+  ---
+- Decolonial Sound Studies.
+  
+  
+  
+  ---
+  
+  
+  Worship the Non-ergods.
+  ---
+  
+  Autodidact, everything available.
+  Non autodidact= art and psychedelic therapy.
+- I bet you can be pro-Jewish, pro-Palestinian, pro-oppressed, and pro-decolonization and pro small-midsize trade simultaneously,
+- I bet you can reconcile Philosophy + Statistics, AI + Human + Nonhuman, Art + Reality, Pop + Speculation, Quality + Quantity, Fragile + Antifragile, Eco + Social, Web 4 + Art History, Post-work + Pro-social.
+- I bet you can espouse antifragile accurate deals while wearing a jedi robe, bunny ears, rapping into a karaoke mic, salsa dancing/parkour and making [[polymath]] quality art and research.
+- I bet you're amasian, made of quantum photons and inferences, and part of the Silent [[Negentropic]] Majority.
+- Why? Because [[Turbojustice]].cloud Reconciles Everything Around Me. TREAM GET THE MONEY.****
+- [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], Philosobomber
+- ### Vow 10: 99% of the population is addicted to inaccurate post-modernism; they are going through withdrawal and it's pointless to educate them unless they kick their habits. Lots of them will die from sheer stupidity; it's not my problem. They can pay for substitution therapy at [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Ideapplebees]].com, if they want!
+- 99.9% of modern populations are addicts.
+- They are suffering from withdrawal, because they have used up their stash.
+- Some are committing suicide now; many have committed suicide in the past.
+- They are too addicted for re-education; there's a funnier and simpler move to play!
