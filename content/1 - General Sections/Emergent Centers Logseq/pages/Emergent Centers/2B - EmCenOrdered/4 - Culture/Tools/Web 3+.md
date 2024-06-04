@@ -1,0 +1,1 @@
+- Web 3+ refers to an assemblage of web 3 technologies which are task-based and have explicit, or [[clearboxed]] constraints.
