@@ -1,0 +1,4 @@
+- ---
+  title: Inferencensus
+  ---
+- [[[[inference]]nsus]] is based on the [[Open Source Universal Basic Intelligence Communities]] use of the [[Statistical Review Protocol]] to infer [[net negentropy]] or [[Antifragility]] system states through various human and non-human systems and agents in relation to the [[Universal Attractor]].
