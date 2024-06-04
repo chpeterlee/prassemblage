@@ -1,0 +1,4 @@
+- Negentropy refers to the constant negation of entropy occurring in all physical systems of the universe at a minimum rate of 10^10 times per second resulting in a universal complexification of all systems over time. This produces the [[Negentropic Principle]] and the [[4. Law of Net Negentropy & the Lumic Turn]].
+- There is no system in the universe that does not obey the [[4. Law of Net Negentropy & the Lumic Turn]].
+- The [[Lumic Turn]] refers to the recent interest in theory regarding light. All things are composed of [[photon]]s; contrary to semiotic theory - semiotics is first photons, then processed as a symbol. Regardless, all photons obey the Law of Net Negentropy.
+- Some theorists are interested in connecting the subjective experiences of love and dream in regards to the Law of Net Negentropy. There are some interesting lines of thought emerging coalescing around the term [[will-to-dream]].
