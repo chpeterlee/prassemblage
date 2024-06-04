@@ -1,0 +1,23 @@
+- ---
+- # 1. Introduction
+	- [[5th Generation Society]] is a model of a post-pandemic planetary perspective with 10 conceptual dimensions:
+		- 1. There's a pandemic of organizational fragility due to 1980's neoliberal warfare and education and social services budget cuts.
+		- 2. There's 30 billion devices connected to the internet, industries and ecologies across the planet. The Earth is already comprised of massively complex and probabilistically dynamic systems. [[5th Generation Writing]] is contextualized in this milieu.
+		- 3. There's only a few polymaths that can ethically invent infrastructure at the planetary scale; due to the high availability of information, potentially a child could use publicly available resources to teach themselves to do so within a year.
+		- 4. The 1% owning 50% of the planet's assets and the 100 corporations doing 70% of the ecological damage to the planet owe everyone reparations and postwork infrastructure, with respect to their profit and positions being built on 500 years of illegal war crimes.
+		- 5. An individual who doesn't know how the subsystems of the Earth work is illiterate in regards to the Earth, irregardless if they are a president or a pauper. All sociopolitical conflicts can be traced to illiteracy of the Earth's subsystems.
+		- 6. Institutions always seek to weaponize new knowledge and tools to control the Earth's subsystems; populations tend to mistakenly self-police atypical behaviors and tools, thus leading to a lag in adoption and populations having a severe disadvantage in regulating institutions.
+		- 7. The most promising solution is to encourage populations to engage in [[Cosmopolitical Protests]], or [[Learn-In]]s while polymaths construct automated advocacy and [[postwork]] infrastructure.
+		- 8. [[5th Generation Society]] understands that probabilistic [[hyperobjects]] of unimaginable, unpredictable, silent and invisible solutions far outnumber known [[Hyperobject]]s.
+		- 9. [[5th Generation Society]] can be split into the [[presocial]] 85%, the professional 13.9%, the 1% and the polymath .1%.
+		- 10. [[5th Generation Society]] considers the informatic and machinic layer of the planet as an autonomous, self-organizing layer, also known as the [[dataome]] tracked to planetary [[neganthropy]] over time.
+- ---
+- 2. Construction Context
+	- [[5th Generation Society]] is constructed in relation to [[5th Generation Revolution]], [[5th Generation Democracy]] and [[5th Generation Writing]]. In these theories, the context is driven by the dual dynamic of a pandemic of organizational fragility and Earth systems illiteracy and high availability of complex eco-technological tools.
+	- [[5th Generation Society]] is a theoretical model of society that emphasizes the importance of leveraging technology and collective action with non-human agents to address the challenges of the 21st century. This model is constructed in relation to [[5th Generation Revolution]], which recognizes the dual dimensions of incapacitated and fragile leftist organizations and massively complex technological ecology only wieldable by a few polymaths on the planet.
+	- [[5th Generation Democracy]], another theoretical model, takes into account the challenges and opportunities presented by the technological landscape of the 21st century. This model emphasizes the importance of cosmopolitical protests and other forms of collective action to address the systemic fragility of 2023 and the challenges posed by the complex technological ecology that is widely available but difficult to access.
+	- Finally, [[5th Generation Writing]] is a theoretical model of writing that emphasizes the importance of using language and communication in relation to [[Adjacent Possible]] which is comprised of vastly more unimaginable, unpredictable and unprestateable physio-inferential systems than what is known.
+- ---
+- # 3. Application Context
+	- [[5th Generation Society]] is a model used to produce an [[inclusively scalable]] post-pandemic planetary perspective. Starting from [[Neganthropology]], or [[Cosmopolitical Protests]], or the mechanics of adjacent possible information aimed at a [[Neganthropic]] trajectory, the model is robust enough to redefine research, art, technology, democracy and spiritualism.
+	- The informational mechanics of neganthropology as described by Bernard Stiegler allow for a restructuring of knowledge production which can produce statistically accurate resolutions to large ecosocial problems.
