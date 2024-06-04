@@ -1,0 +1,6 @@
+- [[5th Generation Protest]] takes its ground as the dual dynamic forming the post-pandemic planetary context as described by [[5th Generation Revolution]] theory, Claire Bishop's contextualization of the 4 phases of conceptual art in relation to technology and [[Bernard Stiegler]]'s theory of the [[Neganthropocene]] and [[Neganthropology]].
+  
+  This dual dynamic is composed of systemic fragility due to 1980's neoliberalism [[Trickle-Down Fragility]] and high availability of planetary-scale technologies. Protest in this context is comprised of 3 primary conceptual dimensions:
+	- 1. The primary source of today's socio-political conflicts, both of those with and without power, stem from inaccuracy and illiteracy with respect to the planet's self-organizational mechanisms due to 1980's neoliberalism.
+	- 2. Currently there are only a few polymaths on the planet capable of synthesizing the planet's infrastructure ethically; however, a child could also potentially teach themselves to do so within a year.
+	- 3. Hence, the activity of learning, care and reflection is redefined as a process of protest itself. This activity is augmented by automated agents advocating, constructing and critiquing [[postwork]] infrastructure.
