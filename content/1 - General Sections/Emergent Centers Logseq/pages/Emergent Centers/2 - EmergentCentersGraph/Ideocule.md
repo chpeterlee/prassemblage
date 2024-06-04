@@ -1,0 +1,1 @@
+- An ideo-cule is a molecule of an ideology or idea. It is composed of a conceptual informational layer, a perceptual mediating mechanism and a physical chemical reaction (which humans often interpret in their bodies as an emotion).
