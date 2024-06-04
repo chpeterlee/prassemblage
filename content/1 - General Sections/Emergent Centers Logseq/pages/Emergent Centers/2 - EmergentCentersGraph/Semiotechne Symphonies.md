@@ -1,0 +1,27 @@
+- ---
+- 1. Abstract
+- The [[Semiotechne Symphonies]] is named after [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]]'s concept of [[Semiotechne]]. It is an audio/visual body of work meant to synthesize problems and solutions that were emerging in 2015. It focuses on 3 principles:
+	- Affective problems can be resolved through the perspective of quantum chemistry.
+	- Conceptual problems can be resolved through a transmedia approach.
+	- Perceptual problems can be resolved through assemblages of functions.
+- List of works in the Ouevre:
+	- [[A Work That Lasts Until I Know What I'm Doing]], [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]] 360 Video.
+	- [[Uknow]]
+	- [[God Hid My A-- in an Amasian]]
+	- [[Amasian Symphony Orchestra: Sidereality]]
+	- [[Love is Just a Motion]]
+	- [[Superpositional Symphony]]
+	- [[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/2 - EmergentCentersGraph/Neganthropomorphosis]]
+- ---
+- 2. Context of Construction
+- Affective problems can be resolved through the perspective of quantum chemistry.
+- Conceptual problems can be resolved through a transmedia approach.
+- Perceptual problems can be resolved through assemblages of functions.
+- ---
+- 3. Context of Application
+- Affective problems can be resolved through the perspective of quantum chemistry.
+- Conceptual problems can be resolved through a transmedia approach.
+- Perceptual problems can be resolved through assemblages of functions.
+- ---
+	- Notes
+		- When one reaches light speed, you simply see the cosmic background radiation blotting everything out as an intense light - great image of Guattari's concept, and also, the best possible simulation to create as a projection, or VR simulation of this inaudible sound.
