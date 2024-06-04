@@ -1,0 +1,1 @@
+- [[Accurate Realism]] is simply a [[model]] of reality which is being continuously tested for accuracy.
