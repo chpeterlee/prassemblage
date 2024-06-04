@@ -1,0 +1,36 @@
+- ---
+- # 1. Introduction
+- [[Neganthropo.site]], is an artwork which is both a natural and artificial quantum chemical mineral comprised of a **mineralization of [[5th Generation Modernism]] and its associated theoretical strata** over time, including the hyperlink [[Neganthropo.site]] to this webpage, which is geocached in the same physical site in which striations of minerals are used to mark the beginnning of the [[Anthropocene]].
+	- This system can also be referred to as a [[Hyperobject]], as articulated by [[Timothy Morton]], a theorist of the [[Anthropocene]] and also of [[inference]].
+- Additionally, the conceptual artist known as [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]] is executing an ongoing performance of regular injections of both small amounts of quantum chemical [[Neganthropo.site]] and the semiotic content of the protocols themselves into his DNA via CRISPR.
+- The mineralization process, known as [[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/2 - EmergentCentersGraph/Neganthropomorphosis]], stretches back to the quantum chemical beginnings of the universe, and is contingent upon the rate of new chemicals synthesized per second on Earth - which is currently roughly about 17 new chemicals per second. This artwork functions as a complexity-based timekeeping device of the [[Neganthropocene]], an era defined by [[Bernard Stiegler]]. There are 3 primary protocols that comprise the mineral known as [[Neganthropo.site]].
+	- 1. The ontology protocol: [[Inclusive Scalability]], [[net negentropy]] and [[Inferentialism]].
+	- 2. The epistemology protocol: [[Statistical Review]], [[Neo-Probabilism]] and [[Potential Energy Realism]].
+		- Incorporates various indexes such as the [[Assembly Index]], also data schemas such as the [[Indefinite Singularity H.U.D. (Heads Up Display)]].
+	- 3. The arbitration protocol:  [[Postwork Market]].
+- ---
+- 2. Context of Construction
+- Neganthropo.site is based on [[Bernard Stiegler]]'s articulation of the era of the [[Neganthropocene]], in the context of contemporary eco-social fragility.
+	- Problems of the Anthropocene
+	- Problems of the rates of change of current organizations, including the time-to-consensus in knowledge production organizations.
+	- Viably [[inclusively scalable]] strategies.
+- ---
+- 3. Context of Application
+- Art, rapid knowledge production, and market arbitration.
+- ---
+- 4. Inferrable World View
+- There are maximally viable strategies for planetary survival; most of modern societies are too deskilled, undereducated or unethical for many popular strategies; [[Nonlinear Evolution]] is a supported evolutionary theory of small groups of individuals rapidly adopting new techne first, then propagating in waves later.
+- Also - the notion of inferential, proxy and superpositional strategies of change based on differentials in skills, knowledge and awareness can be validated in such a situation.
+- ---
+- 5. Existing Applications
+- [[Monument of the Postwork Majority]], [[That is What I Actually Meant (A Performance Art Triptych)]], [[Persistolution]].
+- Notes
+	- A mineralized rock of a hyperlink containing its knowledge graph, geocached into the same place they measure the Anthropocene. Sculptural material for the [[Monument of the Postwork Majority]].
+	- [[Inclusive Scalability]]
+	- The mineralization of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] site.
+	- The [[Grey Papers]] practice s
+	- Ideation simply being inferences combined into a form that can pass [[Statistical Review]], executable via a triangulation of peer review, prototyping and data.
+	- NFT's can and will be made; their boring functional value in relation to the fragile structure of today's education and infrastructure.
+	- Projected to reduce fragility, keep more people alive.
+	- Aiming for mobilizing the Postworking Class , Shoot for a Postwork society and build the Postworkverse using a Postworkmarket .
+	- 7 Step bet against the devil
