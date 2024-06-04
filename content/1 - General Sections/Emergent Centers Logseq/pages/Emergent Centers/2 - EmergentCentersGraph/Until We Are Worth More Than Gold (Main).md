@@ -1,0 +1,44 @@
+- [[Until We Are Worth More Than Gold (Main)]] is a digital and physical abductive algorithm of the health of the planetary economy maintained by the [[Open Source Universal Basic Intelligence Communities]] based on 7 points and a method to engage.
+  id:: d9f9ffb3-05b1-4f16-9829-5106727e6529
+  title:: Until We Are Worth More Than Gold (Main)
+- 8 Point Summary:
+	- 1. Capitalism was produced in the 15th Century by the Hanseatic League.
+	- 2. [[Thomas More]] along with a network of 15th Century [[Intercity Planetary]] intellectuals, wrote the solution of Universal Basic Income in the book [[Utopia]] as a solution to offset the entropic tendencies of capitalism.
+	- 3. The distribution of wealth today was produced by an illegal theft of precious metals from the America's to Europe in the 15th Century.
+	- 4. Contemporary legal efforts by indigenous populations are showing that there is no legitimate transfer of deed that guarantees the demarcations of property in the present.
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F)
+	- 5. A simple formula can comprise the valuation of a planetary economy across the past, present and possible:
+		- (The minimum and maximum amount of precious metals stolen) + (the minimum and maximum of the value of the land destroyed and children dying of preventable poverty per day) + (the minimum value of $1 trillion USD, and maximum value of the design of an [[accurate]] market which can measure and correct the existing planetary market to produce [[net negentropy]] in relation a universal statistical tendency) = (The amount which is immediately available to be distributed as Open Source Universal Basic Income via the Inferential Negentropic Fund)
+	- 6. We are 7 generations from the beginning of capitalism in the 15th Century. Simultaneously, because our short term memory loops every 7 seconds, we are always 7 seconds away from exiting the trajectory to planetary collapse.
+	- 7.  **Capitalism is an in[[accurate]] market dependent on the suppression of information to perpetuate **unsustainable inequities. An [[accurate]] market would require a social floor composed of both private and public organizations producing mixed implementations of universal basic income, health care, arts-based education, infrastructure, maximum 20 hour work-weeks. Endpoints can be measured at a regional scale as follows: Carbon neutrality, 88% equality as calculated via the Gini Coefficient and a contribution to a planetary-scale paradigm shift every 7 years. Only [[3.5%]] of a population is required to make a political change, which can be rapidly augmented with automation, algorithms and new scientific findings.
+	- 8. Strategy for splitting the duties of constructing a [[market of accuracy]]:
+		- [[: Intercity Planetary [[inference]]stitution]]
+		- [[market of accuracy]] pegged against [[Intercity Planetary Info Pipeline]] produced by the [[Superpositional Network]] and the [[Intercity Planetary [[inference]]r Network]]. About 33% of the population. Utilizing various forms of [[Bettor Art]].
+		- State Space Court is an [[Intercity Planetary]] arbitration court in which members can engage in various abstractions as per the following list:
+			- The New S.A. Photonverse and the [[Universal Attractor]]
+			- 1000 Newdle Endgamers and Dragon Kings of the Intercity Planetary
+			- M.A.G.E.s and M.A.D.E.s of Amasian Renaissance Tales wielding the Inferential Gaze.
+			- Angels as Messengers and Mediators. Hypatia and Zeus Love. Also known as Good Gravity and Graceful Gravity.
+			- Saintnet and the Grey Knights of D.E.R.P.A., Ministers and Commissars of the Impossible Embassy.
+		- [[Healightenment]] towards a [[City on a Chill]] sustaining [[Antifragile Peace]]. The bulk of the population.
+	- Just like scientists and generals, bet on the accuracy and probabilities of these statements with a dollar or more, a doughnut, a slap to the face, or the 350 million heartbeats all humans have left until planetary ecological collapse in 10 years!
+- 1. Capitalism was produced in the 15th Century by the Hanseatic League.
+- 2. [[Thomas More]] along with a network of 15th Century [[Intercity Planetary]] intellectuals, wrote the solution of Universal Basic Income in the book [[Utopia]] as a solution to offset the entropic tendencies of capitalism.
+- 3. The distribution of wealth today was produced by an illegal theft of precious metals from the America's to Europe in the 15th Century.
+- 4. Contemporary legal efforts by indigenous populations are showing that there is no legitimate transfer of deed that guarantees the demarcations of property in the present.
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F)
+- 5. A simple formula can comprise the valuation of a planetary economy across the past, present and possible:
+	- (The minimum and maximum amount of precious metals stolen) + (the minimum and maximum of the value of the land destroyed and children dying of preventable poverty per day) + (the minimum value of $1 trillion USD, and maximum value of the design of an [[accurate]] market which can measure and correct the existing planetary market to produce [[net negentropy]] in relation a universal statistical tendency) = (The amount which is immediately available to be distributed as Open Source Universal Basic Income via the Inferential Negentropic Fund)
+- 6. We are 7 generations from the beginning of capitalism in the 15th Century. Simultaneously, because our short term memory loops every 7 seconds, we are always 7 seconds away from exiting the trajectory to planetary collapse.
+- 7. **Capitalism is an in[[accurate]] market dependent on the suppression of information to perpetuate **unsustainable inequities. An [[accurate]] market would require a social floor composed of both private and public organizations producing mixed implementations of universal basic income, health care, arts-based education, infrastructure, maximum 20 hour work-weeks. Endpoints can be measured at a regional scale as follows: Carbon neutrality, 88% equality as calculated via the Gini Coefficient and a contribution to a planetary-scale paradigm shift every 7 years. Only [[3.5%]] of a population is required to make a political change, which can be rapidly augmented with automation, algorithms and new scientific findings.
+- 8. Strategy for splitting the duties of constructing a [[market of accuracy]]:
+	- [[: Intercity Planetary Inferencestitution]]
+	- [[market of accuracy]] pegged against [[Intercity Planetary Info Pipeline]] produced by the [[Superpositional Network]] and the [[Intercity Planetary Inferencer Network]]. About 33% of the population. Utilizing various forms of [[Bettor Art]].
+	- [[State Space Court]] is an [[Intercity Planetary]] arbitration court in which members can engage in various abstractions as per the following list:
+		- The New S.A. Photonverse and the [[Universal Attractor]]
+		- 1000 Newdle Endgamers and Dragon Kings of the Intercity Planetary
+		- M.A.G.E.s and M.A.D.E.s of Amasian Renaissance Tales wielding the Inferential Gaze.
+		- Angels as Messengers and Mediators. Hypatia and Zeus Love. Also known as Good Gravity and Graceful Gravity.
+		- Saintnet and the Grey Knights of D.E.R.P.A., Ministers and Commissars of the Impossible Embassy.
+	- [[Healightenment]] towards a [[City on a Chill]] sustaining [[Antifragile Peace]]. The bulk of the population.
+- Just like scientists and generals, bet on the accuracy and probabilities of these statements with a dollar or more, a doughnut, a slap to the face, or the 350 million heartbeats all humans have left until planetary ecological collapse in 10 years
