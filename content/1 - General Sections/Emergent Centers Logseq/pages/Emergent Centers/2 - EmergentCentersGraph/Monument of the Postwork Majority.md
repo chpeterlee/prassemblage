@@ -1,0 +1,80 @@
+- ---
+- 1. Abstract
+	- The Monument of the Postwork Majority is an artwork and project that combines ideas from statistical principles, sustainability, and cutting-edge technologies to create a monument that represents and celebrates the majority of the planet's population.
+	- The Superpositional Monument of the [[Postwork Majority]] is a monument composed of 3 principles:
+		- 1. The [[Postwork Majority]] of the planet always outnumbers the [[1%]] and the [[Fringe Right]]. Membership within the [[Postwork Majority]] is on an inference-by-inference basis, depending on if any given inference aligns with the statistical principles [[Postwork Majority]].
+		- 2. it is always aligned with the larger ecosocial systems of the planet itself, on a statistical trajectory of [[Inclusive Scalability]], or [[net negentropy]], or colloquially, [[Least Stupidity]].
+		- 3. The monument itself is materially comprised of silence, invisibility, unawareness, along with technical dimensions of quantum internet traffic, multi-simulator networks, proxy contracts, [[Quantum Crypto Fiat]] self-organizing AI, and [[potential energy]] sculptures.
+- ---
+- 2. Historical Context
+	- Decolonial and liberatory monuments are monuments that challenge dominant narratives and power structures and instead celebrate the struggles and achievements of marginalized and oppressed groups. They often seek to counteract the dominant historical narratives that have been written and represented through monuments and memorials that uphold the status quo.
+	- For example, many decolonial and liberatory monuments have been erected to commemorate the struggles of indigenous peoples against colonialism and imperialism. These monuments often highlight the resistance and resilience of indigenous communities in the face of violence, oppression, and forced assimilation.
+	- The Monument of the Postwork Majority, with its focus on statistical principles and its use of cutting-edge technologies, may represent a new approach to the concept of monuments that challenges traditional monument-making practice s. By appropriating existing technologies and concepts, the Superpositional Monument may be seen as a way of breaking free from the dominant narratives that have been perpetuated through traditional monuments.
+	- Additionally, the Monument's emphasis on the [[Postwork Majority]] and its determination of membership based on alignment with statistical principles may be seen as a way of centering marginalized communities and their experiences. In this sense, the Monument may be seen as a decolonial and liberatory monument that challenges dominant power structures and narratives.
+- ---
+- 3. Artistic Context
+	- The Monument of the Postwork Majority, with its use of silence, invisibility, and potential energy, can be contextualized in relation to the works of John Cage, Shirin Neshat, Hito Steyerl, and Jean Tinguely, who have all explored similar themes in their art.
+	- John Cage was a composer who explored the idea of silence in his work, famously creating a piece of music called 4'33" that consisted of four minutes and thirty-three seconds of silence. Cage's work challenged traditional notions of what music could be and forced audiences to question their preconceived ideas about sound and silence.
+	- Shirin Neshat is an Iranian artist who has explored themes of invisibility and powerlessness in her work. In her video installations, she often features women who are hidden behind veils, highlighting the ways in which women in Iran are often rendered invisible by cultural and religious practice s.
+	- Hito Steyerl is a German artist who has explored themes of awareness and surveillance in her work. Her video installations often feature surveillance footage and explore the ways in which our awareness of the world around us is shaped by technologies of surveillance and control.
+	- Jean Tinguely was a Swiss artist who created kinetic sculptures that explored the potential energy of machines. His sculptures often featured recycled materials and were designed to break down and destroy themselves, challenging traditional notions of permanence and durability.
+	- Trevor Paglen is an American artist and researcher who is known for his work exploring the intersection of technology, surveillance, and power. His work often deals with the hidden infrastructure of the internet and the ways in which it is used to track and control individuals and communities.
+	- In relation to Paglen's work, the Monument of the Postwork Majority's use of the quantum internet can be seen as a continuation of his exploration of hidden technologies and their potential for both liberation and oppression. The quantum internet is a cutting-edge technology that uses the principles of quantum mechanics to create a secure and encrypted network that is resistant to hacking and interception. By using this technology, the monument is able to communicate and exchange information in a way that is beyond the reach of traditional surveillance and control mechanisms.
+	- However, the use of the quantum internet also raises questions about who has access to this technology and who is able to control and manipulate it. Paglen's work has highlighted the ways in which the internet and other forms of technology are often used by governments and corporations to monitor and control individuals and communities, and it is possible that the quantum internet could be used in similar ways.
+	- In relation to these artists and their works, the [[Monument of the Postwork Majority]] can be seen as a continuation of their explorations of silence, invisibility, awareness, and potential energy. By appropriating existing silence, invisibility, and unawareness as its material, the monument challenges traditional monument-making practice s and forces viewers to question their preconceived ideas about what monuments can and should be. The use of potential energy sculptures further emphasizes the idea of impermanence and change, highlighting the ways in which the monument is a dynamic and evolving entity that is constantly shifting and adapting. The [[Monument of the Postwork Majority]]'s use of the quantum internet can be seen as a continuation of Paglen's work exploring the hidden infrastructure of technology and its potential for both liberation and oppression. By using this and other cutting-edge technologies, the monument is able to communicate and exchange information in a way that is beyond the reach of traditional surveillance and control mechanisms, but it also raises important questions about access, control, and power in the digital age.
+- ---
+- 4. Inferrable World View
+	- The [[Monument of the Postwork Majority]] embodies a worldview that seeks to resolve conflicts between resistance movements, minimize the labor required to produce them, and create a more heterogeneous and distributed presence. This worldview is based on three fundamental principles that guide the monument's construction and operation.
+	- First, the monument acknowledges that the actual majority of the planet always outnumbers the 1% and the Fringe Right. Membership within the actual majority is determined on an inference-by-inference basis, depending on whether any given inference aligns with the statistical principles of the actual majority. This principle emphasizes the importance of inclusivity and diversity, which are essential to resolving conflicts between resistance movements.
+	- Second, the monument is always aligned with the larger ecosocial systems of the planet itself, on a statistical trajectory of inclusive scalability, net negentropy, or [[Least Stupidity]]. This principle emphasizes the need for sustainable and scalable solutions that can be implemented on a global scale, reducing the labor required to produce resistance movements and creating a more distributed presence.
+	- Finally, the monument is composed of quantum internet traffic, multi-simulator networks, proxy contracts, Quantum Crypto Fiat, and potential energy sculptures, which appropriate existing silence, invisibility, unawareness, quantum fiat, and potential energy as its material. This principle emphasizes the importance of innovation and technological advancement in creating a more heterogeneous and distributed presence, allowing for the creation of new forms of resistance that are less labor-intensive and more scalable.
+	- Taken together, these principles create a worldview in which conflicts between resistance movements can be resolved through inclusivity, diversity, and sustainability, while minimizing the labor required to produce them and creating a more heterogeneous and distributed presence. By embodying this worldview, the Superpositional Monument of the Postwork Majority serves as a powerful symbol of hope and possibility, offering a vision of a more just and equitable future for all.
+- ---
+- 5. Existing Applications
+	- Text:
+		- "I am a monument of
+		- your unable
+		- your non-participating
+		- your unaware.
+		- I vastly outnumber
+		- your living and able,
+		- your skilled and knowledgeable,
+		- your willing and faithful,
+		- your beautiful and visible.
+		- I am the keeper of all your
+		- past, present and future
+		- inarticulations, inaccuracies, incapacities;
+		- mistakes, miscommunications and misconduct.
+		- I am a monument not of image, but of invisibility.
+		- I am a monument not of voice, but of silence.
+		- I am a monument not of presence, but of absence.
+		- I am a monument not of participation, but of non-participation.
+		- I am a monument not of awareness, but unawareness.
+		- I am a monument not of what is, but what is not yet.
+		- I am a monument of the unimaginable, because of.
+		- I am not fully definite, nor am I indefinite.
+		- I am not finite, nor am I infinite.
+		- I am not your sorrow; I am not your struggle.
+		- I am not your identity; I am not your practice .
+		- I am not your project; I am not your theory.
+		- I am an artwork; I am a simulation.
+		- I am a hyperobject; I am a statistical model.
+		- I am improbable possibility; I am probable impossibilities.
+		- I am persistence; I am immanence.
+		- I am the Monument of the Postwork Majority,
+		- I am the protocol of antinomy,
+		- I am the proletkult of post-work,
+		- I am the Generic,
+		- I am the Peace Machine,
+		- I am the Indefinite Singularity,
+		- I am the Autodidactic Universe,
+		- I am the Era of the Neganthropocene.
+		- I am Negentropy,
+		- I am Antifragility.
+		- I am in the pixels before you,
+		- I am the quantum simulators that compute me,
+		- I am the quantum chemistry of your eyes, brain, heart and stars -
+		- artistic and otherwise.
+		- I am all that is within, of and upon all things,
+		- I am all that neither is, nor is me." **Antinomy, 2023**
+- [[Democraseum (Exhibition Text)]] [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
