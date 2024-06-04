@@ -1,0 +1,4 @@
+- [[A.R.T.]] or the [[Amasian Renaissance Tales]] is a fictional genre in which participants engage in producing their future history in the present through any and all media.
+	- Children's media under pressure. Also Games.
+	- James Ferguson - everyone is pretending
+	- 99.9% are about high school level.
