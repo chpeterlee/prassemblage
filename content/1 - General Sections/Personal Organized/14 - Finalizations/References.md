@@ -1,0 +1,3 @@
+- Cuban writer 
+- Non-linearity and emergence
+- Ana Menendez
