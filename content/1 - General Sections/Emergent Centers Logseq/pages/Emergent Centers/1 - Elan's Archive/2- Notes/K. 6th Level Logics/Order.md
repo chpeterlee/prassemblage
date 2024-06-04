@@ -1,0 +1,4 @@
+- 1/2 pound of Scallops
+- Order of Poppers
+- 2 Pieces of Fish
+- 1 Tartar Sauce.
