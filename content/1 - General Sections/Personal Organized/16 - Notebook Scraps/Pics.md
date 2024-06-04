@@ -1,0 +1,7 @@
+![[389939_Gangster rappers with falcon heads in concept art _xl-1024-v1-0.png]]![[p-10-p1.jpg]]
+![[image (1).jpeg]]
+![[invisible+man3.jpg]]
+![[Earth brain.jpg]]
+![[Da_Vinci_Vitruve_Luc_Viatour.jpg]]
+![[Da_Vinci_Vitruve_Luc_Viatour (1).jpg]]
+![[download (23).jpeg]]
