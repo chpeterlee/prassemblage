@@ -1,0 +1,1 @@
+"Birth of an Invagination | [[Least Stupid Prize]]" is a speculative reality game and film which provides the parameters for a simulation of a planetary [[Speculative Justice Movement]] .
