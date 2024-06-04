@@ -1,0 +1,26 @@
+- **Capitalism is an in[[accurate]] market dependent on the suppression of information to perpetuate **unsustainable inequities. An [[accurate]] market would require a social floor composed of both private and public organizations producing mixed implementations of universal basic income, health care, arts-based education, infrastructure, maximum 20 hour work-weeks. Endpoints can be measured at a regional scale as follows: Carbon neutrality, 88% equality as calculated via the Gini Coefficient and a contribution to a planetary-scale paradigm shift every 7 years. Only [[3.5%]] of a population is required to make a political change, which can be rapidly augmented with automation, algorithms and new scientific findings. 
+  
+  For full text, see [[Accurate Market]].
+- 8. Simple calculator for calculating accurate market prices:
+	- Accurate Market general arbitration protocol in compliance with the [[Open Source Universal Basic Intelligence Communities]] [[Statistical Review Protocol]]:
+		- 1. Comp: As, More or Less valuable than [x]
+		- 2. Technical paradigm shift
+		- 3. X cultural paradigm shift
+		- 4. Intellectual paradigm shift
+		- 5. Scalar Paradigm Shift
+		- 6. Aid to [x] and producing project [y]
+		- 7. Sponsored by [x] with future catalysts [y]
+	- ----
+	- Various calculators
+		- Artists
+			- Wagency
+			- Equal pay (amsterdam)
+			- Curators
+	- -----
+	- Assayers of accuracy can rank an [[inference]] with 3 rankings: (gold, silver, bronze.)
+	- -----
+	- Other Processes:
+		- Buy P-O-D
+		- "Mint your NFT" instructions.
+		- Brokers - get paid for confirmation.
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2FXewAtDPwKK.png?alt=media&token=4f522386-f012-4b37-8fd2-bc72b7a6cb30)
