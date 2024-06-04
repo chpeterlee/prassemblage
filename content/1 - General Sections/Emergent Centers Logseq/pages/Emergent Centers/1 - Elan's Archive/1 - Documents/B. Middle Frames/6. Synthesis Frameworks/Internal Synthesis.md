@@ -1,0 +1,59 @@
+1. [[Statistical Mechanics]] / [[Autodidactic]] Antifragile Attractor / [[Radical Emergence]] (Incomputability & Etc.)
+2. **Quantum Chemical Intelligence** / [[Negentropic]] Selection / Adjacent Possibility / Virtual Synthesizers of Intuition
+3. **[[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]**: (Static Architecture/Rapped)
+
+	- Capt. Amasia : Anti-neoliberal liberal, Post-Work Republican & Past, Present Possible.
+		- QT: Quick Hits
+		- QB: Knowledge Transfers
+		- Mad Jedi Magi, Jamillionaire, Majillion aires. Matriya's Heirs.
+	- Antifragile Agent P. Roxy: [[Non-binary]] [[polymath]], NB Hacker, NB Artist, NB Activist, NB K-[[Pop Spec]] musician.
+		- Make offers and etc for Gen X
+	- Q-Fanon (Artspiracy) [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]]tropamine.
+		- [[World's End]]
+		- [[2- Notes/K. 6th Level Logics/Healightenment]] / Great Spa-wakening
+	- Artmy:
+		- Generals : 70's
+		- Commanders : 90's
+		- Captains : 00's
+		- Sergeants : 10's
+		- Privates : 5 year olds
+		- **Operation Killiteracy
+		- **Artsenal, Artmunition, S. Artms**
+		- **Aesthetics: Animals / Objects / Weirdos / Pastels**
+	- [[Artel]]:
+	- Double Dragon King / Crypto Queens / Mad Jedi Magi / Majillionaires
+	- Matriya's Heirs Princes / Princesses
+	- Antifragile Knights / Ninjas
+	- Honest & Hard-working Footsoldiers / Runners
+	- Insane/Vulnerable Comrades / Fam
+	- **Trop Drops:** [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]]tropamine
+	- **Amasian Blues, Trop. Critical Dating.**
+	- **Aesthetics: Safety gear, Nomaditechture, Comics, Tattoos and etc.  Pure Beauty. **
+	  4. EmCen & ICP:
+		- [[Antinomy]]
+		- [[Pop Spec]]
+		- Surrealism & Minimalism
+	- Core Elements:
+	- Art, Science, Feminism
+	- Functions:
+	- Bounties / Awards / Cosplay Law Suitdokus
+	- Fashion
+	- Music (AI made, human performed)
+	- Planetary Escape Room Games / Visualizer
+	- MoA.S.S. / visualize inequality materially/conceptually
+	- A.S.S. Busters Underground / Hall of Infamy
+	- [[Least Stupid Prize]] Club: BOI
+	- Blacklists, Bets and predictions on Takedowns over time
+	- Parallel Computation, Antifragile Fitness, Smithing
+	  		-[[0-Personal/Antifragile Peter Lee Obsidian/Neganthropomorphosis/pages/Amasian]]Public Access TV
+	- Critique / Open Forum / Chill Space (imp embassy)
+	- Weird Out / Critical Dating Show / Marriage
+	- Sex Worker Art
+	- AI ask for help / AI knowledge labor svcs
+	- Sings song, codes PWA
+	- 5. Offers / Asks / [[State Space AI]] / 5 DoF
+	- Toys
+	- Puzzles
+	- Murals
+	- Etc.
+	- Animals
