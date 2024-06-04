@@ -1,0 +1,3 @@
+- Ismas is a holiday that lasts 365 days a year, 7 days a week, 24 hours a day.
+- Ismas has the same exact vibes and rituals of Christmas and Burning Man but without any specific reference to Christmas, Christianity, Burning Man or any other given culture.
+- Ismas celebrates that the [[Autodidactic Universe]] simply always already IS an indefinite singularity that ultimately self-balances over time.
