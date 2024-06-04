@@ -1,0 +1,15 @@
+- 1. I Bet Your Mom is Amasian; I will give you $10 bucks if she is not.
+	- https://www.youtube.com/watch?v=zw_sVkIPSr8
+- 2. Real punk is anti-nihilism; fascism is objectively stupid; everyone has the right to suicide at any time, even if it is objectively stupid; but they don't have the right to harm someone else and are subject to degrees of correction. Dialectics is accurate, but slow.
+	- Jordan Petersen gets schooled by Zizek
+	- https://www.youtube.com/watch?v=j6-oTBxHWuI
+- 3. Quantum is real; everything is quantum probability and possibility. IT'S TIME FOR THE NEGANTHROPOCENE.
+	- Neganthropocene
+- 4. Antifragile is Good, Fragile is Bad, Polymaths are G.O.A.T., especially fictional ones and chemically imbalanced individuals can destroy organizations with and without intention;
+	- Archimedes
+	- Hypatia
+	- Alan Turing
+	- Frankenstein
+- 5. Evolution is non-destructive individuals inventing stuff; it's not their job to teach you anything; it will take like 40 years for the U.S. to fix itself. Postwork Politics is the answer. You're in the [[Postwork Majority]].
+- 6. Play [[PostworkCraft.lol]] and make [[Amasian Postwork Punk]], be part of the [[Banana Revolution (Older)]] and be in the [[Amasian Biennale (Amasia.live)]] for free!
+- 7. Be a part of the [[Least Stupid Movie - Different is More]] and bet whether [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]]'s bet that his conceptual escape art tunnel from ecosocial collapse is strong enough to hold others is true, or that he will lose his soul to the devil, the Entropy-Industrial-Complex.
