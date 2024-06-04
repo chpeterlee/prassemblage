@@ -1,0 +1,4 @@
+- [[6. Newdle Endgames & Healightenment]] is a type of [[Inferential Aesthetics, Culture and Games]] played by the [[Open Source Universal Basic Intelligence Communities]], [[Gen N (Generation Negentropy)]], which explicitly refers to the lack of a science of planetary novelty by the military, knowledge economy and existing meshworks.
+- It is sometimes used to articulate the problems of the [[Intercity Planetary Info Pipeline]].
+- Part of the [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]].
+- [[Healightenment]]
