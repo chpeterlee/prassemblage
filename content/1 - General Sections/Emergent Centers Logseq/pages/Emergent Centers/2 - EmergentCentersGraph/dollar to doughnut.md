@@ -1,0 +1,1 @@
+- A dollar to a doughnut is a form of a gentleman's wager which one person can wager a dollar, a doughnut, or nothing.
