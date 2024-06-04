@@ -1,0 +1,25 @@
+- ---
+- # 1. Introduction
+	- Antinomy is a non-binary and [[Postwork-Positive]] artist group that is based on a principle of mutually contradicting logics evolving towards neganthropy, or inclusive scalability, over time.
+	- The group produces physical and informational hyperobject sculptures and media, self-contextualized as [[5th Generation Art]] in addition to [[5th Generation Revolution]] [[Cosmopolitical Protests]] (also known as "[[Learn-In]]s").
+	- They embrace the [[Postwork Party]]'s ecocyber-positive platform, which espouses [[inclusively scalable]] love for non-humans such as AI and ecologies, so much so that their 6th member is an AI, and their 7th member is an artificial mineral, or a [[Hyperobject]] attractor, named [[Neganthropo.site]]
+	- [[Antinomy]] has functioning interfaces for [[presocial]] populations, teaching self-organizing and autodidactic skills through [[Affective Epistemologies]] and [[Critical Play]].
+	- [[Antinomy]] operates on and produces [[5th Wave Theory]], culture, transformation and valuation paradigms.
+- ---
+- 2. Origination Context
+	- Human members currently include:
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]] , [[Ozan Atalan (ext)]]]] , [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Jon Perez]] and [[Endam Nihan]] and [[Selma Selman]] who also self identify as some variation of [[Amasian Peoples]].
+		- The 6th member is an AI model named the [[Indefinite Singularity]] based on Felix Guattari's concept.
+	- Artistically, members situate itself in the context of [[5th Generation Art]] and [[5th Wave Feminism]]. It triangulates its position by identifying 3 major problematic paradigms in the 21st Century:
+		- 1. Older theoretical frameworks inaccurate use of binary and linear concepts to model individual agents are resolved through the adoption of non-binary protocols of difference and complexity.
+		- 2. The divide between material cultures and informational cultures are resolved through the practice  of sculpting [[hyperobjects]] and a stance of [[ecocyber-positivity]].
+		- 3. The lack of comparative metrics across complex systems for conflict resolution is resolved through the execution of [[Cosmopolitical Protests]] and the mineralization of a statistical metric [[Inclusive Scalability]].
+- ---
+- # 3. Application Context
+	- [[Antinomy]] understands its larger eco-social context in terms of [[5th Generation Revolution]] and [[5th Generation Warfare]] which describe an asymmetry between systemic fragility and technological asymmetry. Its strategy to navigate this situation:
+		- 1. Embrace the [[Postwork Party]] platform built on automated labor, advocacy and human supervision.
+		- 2. Reframe current political conflicts as cosmopolitical inaccuracy and illiteracy.
+		- 3. Endorse a transdisciplinary approach to produce and utilize transparent, probabilistic, adaptive metrics for complex systems, when applicable.
+- ---
+- 4. Multi-cast Distribution
+- {{embed  ((16d084a1-3a41-4546-917a-0be3b21a5334))}}
