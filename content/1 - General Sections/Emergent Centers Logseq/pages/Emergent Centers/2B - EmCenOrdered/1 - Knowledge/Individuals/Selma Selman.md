@@ -1,0 +1,3 @@
+-
+- 7/8/2021 - jammed out the idea of a polymath artist ethically synthesizing resolutions to conflicts that arise from socially-engaged art with [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]].
+- 7/8/2021 - jammed out the idea of a polymath artist ethically synthesizing resolutions to conflicts that arise from socially-engaged art with [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]].
