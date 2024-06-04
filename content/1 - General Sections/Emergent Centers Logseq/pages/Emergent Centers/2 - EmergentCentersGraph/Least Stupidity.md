@@ -1,0 +1,25 @@
+- ---
+- 1. Abstract
+- [[Least Stupidity]] is composed of 3 axioms:
+	- 1. [[Least Stupidity]] is not the absence of stupidity (or to put it in quantifiable terms - entropy within a system); it is the minimization of entropy within a system and maximization of inclusive scalability.
+	- 2. As all systems (or perspectives) are limited in their capacity to compute the universe - there will always be differences in information between systems (or perspectives). As systems and perspectives exchange information, they can mutually reduce the entropy with each other and increase their capacities for inclusive scalability.
+	- 3. As additional information is presented the constraints of what the "least stupid" system state is changes, as does optimal pathways to inclusive scalability.
+- ---
+- 2. Context of Construction
+- In the context of proofs on incomputability, uncertainty, and undecidability, the concept of "[[Least Stupidity]]" can be recontextualized to refer to the limitations of our ability to fully understand and predict complex systems.
+- These proofs demonstrate that there are certain problems that cannot be solved by any algorithm or computation, and that there are limits to our ability to know everything about a system. This means that there will always be some level of uncertainty and unpredictability in our understanding of the world, no matter how much information we gather or how advanced our technology becomes.
+- In this context, "[[Least Stupidity]]" would refer to the effort to minimize the impact of our limitations on our decision-making and problem-solving processes. We may not be able to know everything, but we can strive to make the most informed and rational decisions possible given the available information and resources. This includes acknowledging and accounting for uncertainties and limitations in our analysis and decision-making.
+- Overall, the concept of "[[Least Stupidity]]" can still be applied in the context of proofs on incomputability, uncertainty, and undecidability. It is a call to humility and rationality in the face of our limitations, and a reminder to constantly seek new information and perspectives to improve our understanding of complex systems.
+- ---
+- 3. Context of Application
+- The use of the colloquial term "stupid" is not meant to be derogatory or offensive. Instead, it is play used to emphasize the idea that we all have limitations in our understanding and knowledge. It is a term that people can relate to and understand, which makes it easier to communicate the concept of "[[Least Stupidity]]" to a broader audience.
+- As noted, using technical terms like "entropy" may exclude people who do not have a background in science or engineering. By using more accessible language, we can ensure that everyone can understand and engage in the conversationThis is crucial if we want to minimize entropy within a system and maximize inclusive scalability, as we need to involve as many perspectives and ideas as possible to achieve these goals.
+- Overall, the goal of using the term "[[Least Stupidity]]" and accessible language is to promote a more inclusive and collaborative approach to problem-solving. By recognizing our limitations and working together to reduce entropy within our systems, we can achieve greater scalability and progress.
+- ---
+- 4. Inferrable Worldview
+- A worldview based on [[Least Stupidity]] would emphasize the importance of empathy and understanding based on the recognition of the limits of an individual perspective. Since we cannot know everything, it is important to recognize that others may have different information and perspectives, and that we can learn from and collaborate with them to reduce entropy and increase inclusive scalability.
+- However, a worldview based on [[Least Stupidity]] would not lead to nihilist entropy because it acknowledges that there is always room for improvement and progress. While we may never achieve a state of perfect knowledge or understanding, we can always strive to minimize stupidity and increase inclusive scalability through continuous learning and collaboration.
+- The idea of a system state that is less stupid than any known system state is a reminder that there is always room for improvement, even if we have made significant progress. It encourages us to be open-minded and receptive to new information and perspectives, and to continually seek out ways to reduce entropy and increase inclusive scalability.
+- ---
+- 5. Existing Applications
+- [[Least Stupidity]] is a central concept of a collaborative film currently in production, titled the [[Least Stupid Movie - Different is More]], which claims that it is a film that could possibly save the planet.
