@@ -1,0 +1,19 @@
+- ---
+- # 1. Introduction
+- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] is a media project produced by the art group [[Antinomy]] focusing on building a platform for [[5th Generation Democracy]].  It breaks current challenges to inclusivity, equity and accuracy into 3 major problems:
+  id:: 645f1b81-a997-42ec-99e8-98ad4bfd88dd
+	- 1. Cosmopolitical transmedia
+	- 2. Biopolitical transregionalism
+	- 3. Geopolitical transorganization
+		-
+- Methods
+	- 1. Inclusive Scalability Assesments, Protocols, Credits & Certification
+		- Can Identify Comparative Entropy, Organizational Fragility and Crises Threshholds)
+		- (Can Identify Inclusive Scalability and use the Indefinite Singularity Taxonomy)
+		- (Can Produce Interventions and Protocols for the chemically imbalanced)
+	- 2. Greymarket
+		- (Can Identify and Place Bounties on Bad Actors and Incentivize Good Actors
+	- 3. Statistical Review
+		- (Can Disambiguate Complex Market Claims)
+- Application Context
+	- Midsize organizations in diverse regions.
