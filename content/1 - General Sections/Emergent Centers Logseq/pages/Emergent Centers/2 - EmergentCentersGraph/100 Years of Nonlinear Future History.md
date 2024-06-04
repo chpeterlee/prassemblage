@@ -1,0 +1,12 @@
+- An artwork and book by [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] in cooperation with [[Centre Amasia]] written with teenagers and AI across the world within existing textbooks, both correcting past errors and articulating adjacent futures. 
+  id:: 6032ea47-e1b1-4160-b76c-ebcfb8895b98
+	- Instructions:
+		- Game template (or ignore)
+		- Story (or ignore)
+	- 100 Years of Non-linear History.Pdf
+	- Assemblage Theory Lectures
+		- Youtube List
+	- Stuart Kaufmann Youtube List
+		- Radical Emergence and The Adjacent Possible
+	- The book also overlaps inferentially with co-written texts, [[The Amasian Dialogues]] and the [[Amasian Renaissance Tales]].
+-
