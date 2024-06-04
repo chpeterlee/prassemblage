@@ -1,0 +1,3 @@
+- [[Postwork Capital]], similar to Creative Capital, is an organization which issues [[Postwork Capital]] grants to artists and changemakers; the grants themselves are comprised of [[Postwork Capital]], which can be capitalized, speculatively.
+- One of its premier investments is [[SpecDocs]], a non-local local organization which funds [[Steganographic Documentary (StegDoc)]] projects with philostatistically verified neganthropic impact. Often these works are funded via [[Postworkmarket.art]].
+- [[Postwork Capital]] also engages in various speculative operations, producing speculative media that elucidates its [[Postwork Capital]] investments.
