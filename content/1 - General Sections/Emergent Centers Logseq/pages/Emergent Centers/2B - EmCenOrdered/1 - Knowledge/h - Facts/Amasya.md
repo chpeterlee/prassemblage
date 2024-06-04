@@ -1,0 +1,472 @@
+- Amasya
+	- From Wikipedia, the free encyclopedia
+	- [Jump to navigation](https://en.wikipedia.org/wiki/Amasya#mw-head)[Jump to search](https://en.wikipedia.org/wiki/Amasya#searchInput)
+	- Not to be confused with [Amasra](https://en.wikipedia.org/wiki/Amasra).
+	- **Amasya**
+	- **[City](https://en.wikipedia.org/wiki/City)**
+	- ![A partial view of Amasya seen from Amasya Castle.](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Ye%C5%9Fil%C4%B1rmak2.jpg/250px-Ye%C5%9Fil%C4%B1rmak2.jpg)[🔗](https://en.wikipedia.org/wiki/File:Ye%C5%9Fil%C4%B1rmak2.jpg)
+	- A partial view of Amasya seen from [Amasya Castle](https://en.wikipedia.org/wiki/Amasya_Castle).
+	- ![Amasya is located in Turkey](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Turkey_adm_location_map.svg/250px-Turkey_adm_location_map.svg.png)[🔗](https://en.wikipedia.org/wiki/File:Turkey_adm_location_map.svg)
+	- ![Amasya](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Red_pog.svg/6px-Red_pog.svg.png)
+	- Amasya
+	- Coordinates: ![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/WMA_button2b.png/17px-WMA_button2b.png)[40°39′00″N 35°49′59″E](https://geohack.toolforge.org/geohack.php?pagename=Amasya&params=40_39_00_N_35_49_59_E_type:city_region:TR-05)[Coordinates](https://en.wikipedia.org/wiki/Geographic_coordinate_system): ![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/WMA_button2b.png/17px-WMA_button2b.png)[40°39′00″N 35°49′59″E](https://geohack.toolforge.org/geohack.php?pagename=Amasya&params=40_39_00_N_35_49_59_E_type:city_region:TR-05)
+	- Country[Turkey](https://en.wikipedia.org/wiki/Turkey)
+	- [Province](https://en.wikipedia.org/wiki/Provinces_of_Turkey)[Amasya](https://en.wikipedia.org/wiki/Amasya_Province)
+	- Government
+	- • MayorMehmet Sarı ([MHP](https://en.wikipedia.org/wiki/Nationalist_Movement_Party))
+	- Area
+	- [[1]](https://en.wikipedia.org/wiki/Amasya#cite_note-distr-area-1)
+	- • District1,729.69 km2 (667.84 sq mi)
+	- Population
+	- • [Urban](https://en.wikipedia.org/wiki/Urban_area)
+	- 91,874
+	- • District
+	- 133,133
+	- • District density77/km2 (200/sq mi)
+	- Website[www.amasya.gov.tr](http://www.amasya.bel.tr/)
+	- **Amasya** (Turkish pronunciation: [[aˈmasja]](https://en.wikipedia.org/wiki/Help:IPA/Turkish); [Greek](https://en.wikipedia.org/wiki/Greek_language): Ἀμάσεια) is a city in northern [Turkey](https://en.wikipedia.org/wiki/Turkey) and is the capital of [Amasya Province](https://en.wikipedia.org/wiki/Amasya_Province), in the [Black Sea Region](https://en.wikipedia.org/wiki/Black_Sea_Region). It used to be called **Amaseia** or **Amasia** in antiquity.[[3]](https://en.wikipedia.org/wiki/Amasya#cite_note-Brit-3) Amasya stands in the mountains above the [Black Sea](https://en.wikipedia.org/wiki/Black_Sea) coast, set apart from the rest of Anatolia in a narrow valley along the banks of the [Yeşilırmak](https://en.wikipedia.org/wiki/Ye%C5%9Fil%C4%B1rmak_%28river%29) River. Although near the Black Sea, this area is high above the coast and has an inland climate, well-suited to growing apples, for which Amasya province, one of the provinces in north-central Anatolia Turkey, is famed. It was the home of the geographer [Strabo](https://en.wikipedia.org/wiki/Strabo) and the birthplace of the 15th century scholar and physician [Amirdovlat Amasiatsi](https://en.wikipedia.org/wiki/Amirdovlat_Amasiatsi). Located in a narrow cleft of the Yeşilırmak (Iris) river, it has a history of 7,500 years which has left many traces still evident today.
+	- In antiquity, Amaseia was a fortified city high on the cliffs above the river. It has a long history as a wealthy provincial capital, producing kings and princes, artists, scientists, poets and thinkers, from the kings of [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29), through [Strabo](https://en.wikipedia.org/wiki/Strabo) the geographer, to many generations of the Ottoman imperial dynasty. With its Ottoman-period wooden houses and the tombs of the Pontus kings carved into the cliffs overhead, Amasya is attractive to visitors. In recent years, there has been much investment in tourism, and therefore more foreign and Turkish tourists have visited the city.
+	- During the early [Ottoman](https://en.wikipedia.org/wiki/Ottoman_Empire) rule, it was customary for young Ottoman princes to be sent to Amasya to govern and gain experience. Amasya was also the birthplace of the [Ottoman sultans](https://en.wikipedia.org/wiki/Ottoman_sultans) [Murad I](https://en.wikipedia.org/wiki/Murad_I) and [Selim I](https://en.wikipedia.org/wiki/Selim_I). Traditional [Ottoman houses](https://en.wikipedia.org/wiki/Ottoman_architecture) near the Yeşilırmak and the other main historical buildings have been restored; these traditional Yalıboyu houses are now used as cafes, restaurants, pubs and hotels. Behind the Ottoman wooden houses one can see the rock tombs of the Pontic kings.
+- Contents
+	- [1Etymology](https://en.wikipedia.org/wiki/Amasya#Etymology)
+	- [2History](https://en.wikipedia.org/wiki/Amasya#History)
+		- [2.1Antiquity](https://en.wikipedia.org/wiki/Amasya#Antiquity)
+		- [2.2Hellenistic period](https://en.wikipedia.org/wiki/Amasya#Hellenistic_period)
+		- [2.3Roman-Byzantine period](https://en.wikipedia.org/wiki/Amasya#Roman-Byzantine_period)
+		- [2.4Early Turkish rulers](https://en.wikipedia.org/wiki/Amasya#Early_Turkish_rulers)
+		- [2.5Ottoman era](https://en.wikipedia.org/wiki/Amasya#Ottoman_era)
+		- [2.6World War I and the Turkish War of Independence](https://en.wikipedia.org/wiki/Amasya#World_War_I_and_the_Turkish_War_of_Independence)
+	- [3Ecclesiastical history](https://en.wikipedia.org/wiki/Amasya#Ecclesiastical_history)
+		- [3.1Titular Latin see](https://en.wikipedia.org/wiki/Amasya#Titular_Latin_see)
+	- [4The legend of Ferhat and Shirin](https://en.wikipedia.org/wiki/Amasya#The_legend_of_Ferhat_and_Shirin)
+	- [5Climate](https://en.wikipedia.org/wiki/Amasya#Climate)
+	- [6Amasya today](https://en.wikipedia.org/wiki/Amasya#Amasya_today)
+		- [6.1Tourism](https://en.wikipedia.org/wiki/Amasya#Tourism)
+		- [6.2Economy](https://en.wikipedia.org/wiki/Amasya#Economy)
+		- [6.3Cuisine](https://en.wikipedia.org/wiki/Amasya#Cuisine)
+	- [7Notable natives](https://en.wikipedia.org/wiki/Amasya#Notable_natives)
+	- [8Population](https://en.wikipedia.org/wiki/Amasya#Population)
+	- [9Geography](https://en.wikipedia.org/wiki/Amasya#Geography)
+	- [10Settlements in the district](https://en.wikipedia.org/wiki/Amasya#Settlements_in_the_district)
+		- [10.1Townships](https://en.wikipedia.org/wiki/Amasya#Townships)
+		- [10.2Villages](https://en.wikipedia.org/wiki/Amasya#Villages)
+	- [11Twin cities](https://en.wikipedia.org/wiki/Amasya#Twin_cities)
+	- [12See also](https://en.wikipedia.org/wiki/Amasya#See_also)
+	- [13References](https://en.wikipedia.org/wiki/Amasya#References)
+	- [14Sources and external links](https://en.wikipedia.org/wiki/Amasya#Sources_and_external_links)
+- Etymology[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=1)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Amasya_008.jpg/200px-Amasya_008.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_008.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_008.jpg)
+	- Amasya and [Yeşilırmak River](https://en.wikipedia.org/wiki/Ye%C5%9Fil%C4%B1rmak_River)
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/1/14/Amasya_007.jpg/220px-Amasya_007.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_007.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_007.jpg)
+	- Ancient [Pontic](https://en.wikipedia.org/wiki/Pontic_Greeks) tombs on the mountain
+	- According to [Strabo](https://en.wikipedia.org/wiki/Strabo) the [Greek](https://en.wikipedia.org/wiki/Greek_language) name Ἀμάσεια comes from Amasis, the queen of the [Amazons](https://en.wikipedia.org/wiki/Amazons), who were said to have lived here. The name has changed little throughout history: Ἀμάσεια, __Amaseia__, __Amassia__ and __Amasia__ are all found on ancient Greek and Roman coinage and continue to be used in modern Greek. [Armenian](https://en.wikipedia.org/wiki/Armenian_language): Ամասիա, [Ottoman Turkish](https://en.wikipedia.org/wiki/Ottoman_Turkish_language) أماصيا, and modern Turkish __Amasya__ all represent the same pronunciation.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- History[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=2)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Statue_of_Strabo_in_Amasia.jpg/170px-Statue_of_Strabo_in_Amasia.jpg)[🔗](https://en.wikipedia.org/wiki/File:Statue_of_Strabo_in_Amasia.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Statue_of_Strabo_in_Amasia.jpg)
+	- [Strabo](https://en.wikipedia.org/wiki/Strabo) was a [Greek](https://en.wikipedia.org/wiki/Ancient_Greece) geographer, philosopher, and historian from Amasya.
+- Antiquity[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=3)]
+	- Archaeological research shows that Amasya was first settled by the [Hittites](https://en.wikipedia.org/wiki/Hittites) and subsequently by [Phrygians](https://en.wikipedia.org/wiki/Phrygians), [Cimmerians](https://en.wikipedia.org/wiki/Cimmerians), [Lydians](https://en.wikipedia.org/wiki/Lydians), [Greeks](https://en.wikipedia.org/wiki/Greeks), [Persians](https://en.wikipedia.org/wiki/Persian_people).[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Hellenistic period[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=4)]
+	- An independent [Pontic kingdom](https://en.wikipedia.org/wiki/Kingdom_of_Pontus) with its capital at Amaseia was established by the [Persian](https://en.wikipedia.org/wiki/Persian_people) [Mithridatic dynasty](https://en.wikipedia.org/wiki/Mithridatic_dynasty) at the end of the 4th century BC, in the wake of [Alexander](https://en.wikipedia.org/wiki/Alexander_the_Great)'s conquests. In the 1st century BC, it briefly contested Rome's hegemony in Anatolia. By 183 BC, the city was settled by Greeks, eventually becoming the capital of the kings of [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29) from 333 BC to 26 BC. Today, there are prominent ruins including the [royal tombs of Pontus](https://en.wikipedia.org/wiki/Tombs_of_the_kings_of_Pontus) in the rocks above the riverbank in the centre of the city. Ancient district in northeastern Anatolia adjoining the Black Sea.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Roman-Byzantine period[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=5)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/Amasya_Museum_32.jpg/200px-Amasya_Museum_32.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_Museum_32.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_Museum_32.jpg)
+	- A Byzantine tomb in Amasya archeological Museum
+	- Amaseia was captured by a force led by the [Roman](https://en.wikipedia.org/wiki/Ancient_Rome) [Lucullus](https://en.wikipedia.org/wiki/Lucullus) in 70 BC and was quickly made a free city and administrative center of his new province of [Bithynia](https://en.wikipedia.org/wiki/Bithynia) and [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29) by [Pompey](https://en.wikipedia.org/wiki/Pompey). By this time, Amaseia was a thriving city, the home of thinkers, writers and poets, and one of them, [Strabo](https://en.wikipedia.org/wiki/Strabo), left a full description of Amaseia as it was between 60 BC and 19 AD. Around 2 or 3 BC, it was incorporated into the Roman province of [Galatia](https://en.wikipedia.org/wiki/Galatia_%28Roman_province%29), in the district of Pontus Galaticus. Around the year 112, the emperor [Trajan](https://en.wikipedia.org/wiki/Trajan) designated it a part of the province of [Cappadocia](https://en.wikipedia.org/wiki/Cappadocia).[[4]](https://en.wikipedia.org/wiki/Amasya#cite_note-4)[[5]](https://en.wikipedia.org/wiki/Amasya#cite_note-OCD-5) Later in the 2nd century it gained the titles '[metropolis](https://en.wikipedia.org/wiki/Metropolis)' and 'first city'. After the division of the [Roman Empire](https://en.wikipedia.org/wiki/Roman_Empire) by emperor [Diocletian](https://en.wikipedia.org/wiki/Diocletian) the city became part of the [East Roman Empire](https://en.wikipedia.org/wiki/East_Roman_Empire) (the [Byzantine Empire](https://en.wikipedia.org/wiki/Byzantine_Empire)). At this time it had a predominantly Greek-speaking population.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- Amaseia was also referenced in the first book of the [Alexiad](https://en.wikipedia.org/wiki/Alexiad). Amaseia was the town where [Emperor Alexios I Komnenos](https://en.wikipedia.org/wiki/Alexios_I_Komnenos) received the Norman general [Ursel](https://en.wikipedia.org/wiki/Roussel_de_Bailleul) as a captive from the Turkic general Tutach. Ursel had, according to the book, looted and pillaged the Eastern provinces of the Byzantine Empire until the at-the-time General Alexios convinced Tutach to capture him. Alexios agreed that he would pay "...such a sum of money as no one ever gained before." to Tutach for the capture of Ursel, however Alexios had no cash to give and the Emperor was unable to fund it, so he attempted to raise money from the people of Amaseia, however this caused serious unrest. However, after a speech by Alexios, he arranged a mock-blinding of Ursel which promptly caused the people to contribute funds. However, this is likely to be biased.[[6]](https://en.wikipedia.org/wiki/Amasya#cite_note-6)
+	- Saints [Theodore of Amasea](https://en.wikipedia.org/wiki/Theodore_of_Amasea) (died by 319), a warrior saint, and the local bishop [Asterius of Amasea](https://en.wikipedia.org/wiki/Asterius_of_Amasea) (died c. 410), some of whose polished sermons survive, are notable Christian figures from the period.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- In 2013, a 24-square-meter christian mosaic belonging to the floor of a chapel was discovered, near a site where an illegal archaeological dig had been attempted. The mosaic, depicts apples, an apple tree, partridges and many geometric figures.[[7]](https://en.wikipedia.org/wiki/Amasya#cite_note-7)
+- Early Turkish rulers[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=6)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Amasya_evleri.jpg/220px-Amasya_evleri.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_evleri.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_evleri.jpg)
+	- [Ottoman](https://en.wikipedia.org/wiki/Ottoman_Empire)-era houses (foreground) and ancient [Pontic](https://en.wikipedia.org/wiki/Pontic_Greeks) tomb (background, left) in Amasya
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Amasya_Altstadt.JPG/200px-Amasya_Altstadt.JPG)[🔗](https://en.wikipedia.org/wiki/File:Amasya_Altstadt.JPG)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_Altstadt.JPG)
+	- An example of an [Ottoman architecture](https://en.wikipedia.org/wiki/Ottoman_architecture) in Amasya
+	- In 1075, ending 700 years of Byzantine rule, Amasya was conquered by the [Turkmen](https://en.wikipedia.org/wiki/Oghuz_Turks) [Danishmend](https://en.wikipedia.org/wiki/Danishmends) emirs.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) It served as their capital until the annexation of the Danishmendid dominions by the [Seljuk](https://en.wikipedia.org/wiki/Sultanate_of_Rum) ruler [Kilij Arslan II](https://en.wikipedia.org/wiki/Kilij_Arslan_II).[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) When he died, his realm was divided among his sons, and Amasya passed to [Nizam ad-Din Arghun Shah](https://en.wikipedia.org/w/index.php?title=Nizam_ad-Din_Arghun_Shah&action=edit&redlink=1). His rule was brief, as he lost it to his brother [Rukn ad-Din Suleiman Shah](https://en.wikipedia.org/wiki/Rukn_ad-Din_Suleiman_Shah), who subsequently became Sultan.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) During the 13th century the city passed under the control of the [Mongol](https://en.wikipedia.org/wiki/Mongol_Empire) [Ilkhanate](https://en.wikipedia.org/wiki/Ilkhanate), and was ruled by Mongol governors, except for a brief rule by [Taj ad-Din Altintash](https://en.wikipedia.org/w/index.php?title=Taj_ad-Din_Altintash&action=edit&redlink=1), son of the last Seljuk sultan, [Mesud II](https://en.wikipedia.org/wiki/Mesud_II).[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8)
+	- Under the Seljuks and the Ilkhan, the city became a centre of Islamic culture and produced some notable individuals such as [Yaqut al-Musta'simi](https://en.wikipedia.org/wiki/Yaqut_al-Musta%27simi) (1221-1298) calligrapher and secretary of the last Abbasid caliph who was a [Greek](https://en.wikipedia.org/wiki/Greeks) native of Amasya.[[9]](https://en.wikipedia.org/wiki/Amasya#cite_note-Houtsma_1987-9) Schools, mosques, tombs and other architecture of this period still remain.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- In 1341, the emir [Habiloghlu](https://en.wikipedia.org/w/index.php?title=Habiloghlu&action=edit&redlink=1) occupied the city, before it came under the rule of the [Eretnid](https://en.wikipedia.org/wiki/Eretnid) emirate. [Hadji Shadgeldi Pasha](https://en.wikipedia.org/w/index.php?title=Hadji_Shadgeldi_Pasha&action=edit&redlink=1) took Amasya from the Eretnids under Ali Bey, and successfully fended off the claims of [Kadi Burhan al-Din](https://en.wikipedia.org/wiki/Kadi_Burhan_al-Din), who had supplanted the Eretnids.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) Shadgeldi was succeeded by his son Ahmed, who managed to retain his autonomy for a while, with Ottoman assistance; but in 1391/92, the [mounting pressure](https://en.wikipedia.org/wiki/Battle_of_K%C4%B1rkdilim) forced him to cede the city to the Ottoman sultan [Bayezid I](https://en.wikipedia.org/wiki/Bayezid_I), who installed his son, the future [Mehmed I](https://en.wikipedia.org/wiki/Mehmed_I), as its governor.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8)[[10]](https://en.wikipedia.org/wiki/Amasya#cite_note-10)
+- Ottoman era[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=7)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Amasya_-_panoramio.jpg/220px-Amasya_-_panoramio.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_-_panoramio.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_-_panoramio.jpg)
+	- Mosque of Bayezid II.
+	- After the disastrous [Battle of Ankara](https://en.wikipedia.org/wiki/Battle_of_Ankara) in 1402, Mehmed I fled to Amasya, which (along with nearby [Tokat](https://en.wikipedia.org/wiki/Tokat)) became his main residence and stronghold during the [Ottoman Interregnum](https://en.wikipedia.org/wiki/Ottoman_Interregnum).[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8)[[11]](https://en.wikipedia.org/wiki/Amasya#cite_note-11)
+	- As a result, the city enjoyed a special status under the Ottomans.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) A number of Ottoman princes were sent to the province of Amasya (the [Rûm Eyalet](https://en.wikipedia.org/wiki/R%C3%BBm_Eyalet)) as governors in their youth, from Mehmed II in the late 14th century to [Bayezid II](https://en.wikipedia.org/wiki/Bayezid_II) in the 15th century, through to [Murat III](https://en.wikipedia.org/wiki/Murat_III) in the 16th century.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- [Suleiman the Magnificent](https://en.wikipedia.org/wiki/Suleiman_the_Magnificent) often stayed in the city, and even received the [Habsburg](https://en.wikipedia.org/wiki/Habsburg_Monarchy) ambassador [Ogier Ghiselin de Busbecq](https://en.wikipedia.org/wiki/Ogier_Ghiselin_de_Busbecq) there.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8) Already distinguished a cultural centre under the Seljuks, Amasya now "became one of the main seats of learning in Anatolia".[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8)
+	- Between 1530 and 1545, several travelers documented a [blood libel](https://en.wikipedia.org/wiki/Blood_libel) against some of the town's [Jews](https://en.wikipedia.org/wiki/Jews).[[12]](https://en.wikipedia.org/wiki/Amasya#cite_note-jewishencyclopedia.com-12) After the disappearance of a local [Christian](https://en.wikipedia.org/wiki/Christians), several [Jews](https://en.wikipedia.org/wiki/Jews) living in town were blamed for killing him for ritual reasons. The Jews confessed under torture and were hanged. When the supposed victim was discovered to still be alive, Sultan [Suleiman the Magnificent](https://en.wikipedia.org/wiki/Suleiman_the_Magnificent) ordered that all accusations regarding religious rituals should be judged under "royal" and not local court.[[12]](https://en.wikipedia.org/wiki/Amasya#cite_note-jewishencyclopedia.com-12) In 1555, Amasya was also the location for the signing of the [Peace of Amasya](https://en.wikipedia.org/wiki/Peace_of_Amasya) with the Safavid dynasty of Persia.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- The population of Amasya at this time was very different from that of most other cities in the Ottoman Empire, as it was part of their training for the future sultans to learn about every nation of the Empire. Every [millet](https://en.wikipedia.org/wiki/Millet_system) of the Empire was represented in Amasya in a particular village—such as a Greek village, an Armenian village, a Bosnian village, a Tatar village, a Turkish village etc. (see: 1927 Population count data by DİE)
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-indoor-1.JPG/200px-Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-indoor-1.JPG)[🔗](https://en.wikipedia.org/wiki/File:Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-indoor-1.JPG)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-indoor-1.JPG)
+	- [Medrese](https://en.wikipedia.org/wiki/Medrese) in Amasya, it is a form of Islamic school in [Ottoman Empire](https://en.wikipedia.org/wiki/Ottoman_Empire)
+	- In the late 19th century, the city had 25,000–30,000 inhabitants, mostly Turks, but also some Armenians and Greeks.[[8]](https://en.wikipedia.org/wiki/Amasya#cite_note-EI2-8)
+- World War I and the Turkish War of Independence[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=8)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/63/Amasya-House.JPG/220px-Amasya-House.JPG)[🔗](https://en.wikipedia.org/wiki/File:Amasya-House.JPG)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya-House.JPG)
+	- Sarayduzu Barracks War of Independence Museum and Congress Center
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/K%C3%B6pr%C3%BC_-_panoramio_%281%29.jpg/220px-K%C3%B6pr%C3%BC_-_panoramio_%281%29.jpg)[🔗](https://en.wikipedia.org/wiki/File:K%C3%B6pr%C3%BC_-_panoramio_%281%29.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:K%C3%B6pr%C3%BC_-_panoramio_%281%29.jpg)
+	- Amasya Bridge
+	- In 1919 Amasya was the location of the final planning meetings held by Mustafa Kemal [Atatürk](https://en.wikipedia.org/wiki/Atat%C3%BCrk) for the building of a Turkish army to establish the Turkish republic following the collapse of the Ottoman Empire at the end of the First World War. It was here that Mustafa Kemal made the announcement of the [Turkish War of Independence](https://en.wikipedia.org/wiki/Turkish_War_of_Independence) in the [Amasya Circular](https://en.wikipedia.org/wiki/Amasya_Circular). This circular is considered as the first written document putting the Turkish War of Independence in motion. The circular, distributed across Anatolia, declared Turkey's independence and integrity to be in danger and called for a national conference to be held in [Sivas](https://en.wikipedia.org/wiki/Sivas) ([Sivas Congress](https://en.wikipedia.org/wiki/Sivas_Congress)) and before that, for a preparatory congress comprising representatives from the eastern provinces of Anatolia to be held in [Erzurum](https://en.wikipedia.org/wiki/Erzurum) in July ([Erzurum Congress](https://en.wikipedia.org/wiki/Erzurum_Congress)).[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- During the years of [World War I](https://en.wikipedia.org/wiki/World_War_I) and the [Turkish War of Independence](https://en.wikipedia.org/wiki/Turkish_War_of_Independence), the Christian inhabitants of Amasya (Armenian and Greek) suffered from atrocities. Many Armenian civilians fleeing the attacks sought refuge at the American missionary school [Anatolia College](https://en.wikipedia.org/wiki/Anatolia_College), located in [Merzifon](https://en.wikipedia.org/wiki/Merzifon) outside Amasya. In 1921, Turkish troops closed down the school, and the local population relocated to [Thessaloniki](https://en.wikipedia.org/wiki/Thessaloniki) after the [population exchange between Greece and Turkey](https://en.wikipedia.org/wiki/Population_exchange_between_Greece_and_Turkey).[[13]](https://en.wikipedia.org/wiki/Amasya#cite_note-13) Also, in 1921 there was the [Amasya trials](https://en.wikipedia.org/wiki/Amasya_trials) which were special ad hoc trials, organized by the [Turkish National Movement](https://en.wikipedia.org/wiki/Turkish_National_Movement), with the purpose to kill the Greek representatives of [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29) region under a legal pretext.[[14]](https://en.wikipedia.org/wiki/Amasya#cite_note-Hofmann208-14)
+- Ecclesiastical history[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=9)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/08/Amasya_Saat_Kulesi_%283%29.jpg/200px-Amasya_Saat_Kulesi_%283%29.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_Saat_Kulesi_%283%29.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_Saat_Kulesi_%283%29.jpg)
+	- Amasya Clocktower
+	- Amasea became the seat of a Christian metropolitan bishop in the [Eastern Roman Empire](https://en.wikipedia.org/wiki/Eastern_Roman_Empire),[[15]](https://en.wikipedia.org/wiki/Amasya#cite_note-ehw-15) in particular from the 3rd century AD.[[16]](https://en.wikipedia.org/wiki/Amasya#cite_note-16) As capital of the Late [Roman province](https://en.wikipedia.org/wiki/Roman_province) of [Helenopontus](https://en.wikipedia.org/wiki/Helenopontus), it also became its Metropolitan Archbishopric and included the suffragans of [Amisus](https://en.wikipedia.org/wiki/Amisus), [Andrapa](https://en.wikipedia.org/wiki/Andrapa), [Euchaitae](https://en.wikipedia.org/w/index.php?title=Euchaitae&action=edit&redlink=1), [Ibora](https://en.wikipedia.org/wiki/Ibora), [Sinope](https://en.wikipedia.org/wiki/Sinop,_Turkey), [Zaliche](https://en.wikipedia.org/wiki/Zaliche) and [Zela](https://en.wikipedia.org/wiki/Zela_%28titular_see%29). In the 10th century the metropolis ranked 11th among the metropolises of the [Ecumenical Patriarchate of Constantinople](https://en.wikipedia.org/wiki/Ecumenical_Patriarchate_of_Constantinople). From the 12th century the Christian element was reduced due to the [Turkic migrations](https://en.wikipedia.org/wiki/Turkic_migration) into Anatolia. The Orthodox metropolis of Amasea was active until the [Population exchange between Greece and Turkey](https://en.wikipedia.org/wiki/Population_exchange_between_Greece_and_Turkey) (1923) and in 1922 counted c. 40,000 Christians, 20,000 of them being Greek speakers. Last active metropolitan bishop was [Germanos Karavangelis](https://en.wikipedia.org/wiki/Germanos_Karavangelis).[[15]](https://en.wikipedia.org/wiki/Amasya#cite_note-ehw-15)
+	- No longer being a residential diocese, Amasea is today listed by both the [Eastern Orthodox Church](https://en.wikipedia.org/wiki/Eastern_Orthodox_Church) and the [Catholic Church](https://en.wikipedia.org/wiki/Catholic_Church) as a [titular see](https://en.wikipedia.org/wiki/Titular_see).[[17]](https://en.wikipedia.org/wiki/Amasya#cite_note-17)
+- Titular Latin see[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=10)]
+	- Rome suppressed the see formally c. 1600, but immediately transformed it into a [titular archbishopric](https://en.wikipedia.org/wiki/Titular_archbishopric) Amasea, of the highest (Metropolitan) rank, which has had the following archiepiscopal incumbents:
+		- [(Giovanni) Battista Agucchia](https://en.wikipedia.org/wiki/Giovanni_Battista_Agucchi) (1623.10.23 – death 1632.01.01), papal diplomat
+		- [Fausto Poli](https://en.wikipedia.org/wiki/Fausto_Poli) (1633.03.14 – 1643.07.13), later created [Cardinal-Priest](https://en.wikipedia.org/wiki/Cardinal-Priest) of [S. Crisogono](https://en.wikipedia.org/w/index.php?title=S._Crisogono&action=edit&redlink=1) (1643.08.31 – death 1653.10.07), Bishop of [Orvieto](https://en.wikipedia.org/wiki/Roman_Catholic_Diocese_of_Orvieto) (Italy) (1644.05.23 – 1653.10.07)
+		- [Egidio Colonna](https://en.wikipedia.org/wiki/Egidio_Colonna), [Cassinese Benedictine Congregation](https://en.wikipedia.org/wiki/Cassinese_Benedictine_Congregation) (O.S.B. Cas.) (1643.12.19 – 1671.01.19); later [Titular Latin Patriarch of Jerusalem](https://en.wikipedia.org/wiki/Titular_Latin_Patriarch_of_Jerusalem) (1636 – death 1637)
+		- Francesco Marini (1671.01.19 – 1686.04.27), former Bishop of [Albenga](https://en.wikipedia.org/wiki/Roman_Catholic_Diocese_of_Albenga) (Italy) (1655.08.11 – 1666.03.29), Bishop of [Molfetta](https://en.wikipedia.org/wiki/Roman_Catholic_Diocese_of_Molfetta) (Italy) (1666.03.29 – 1670.10.06); later Titular Archbishop of [Theodosia (see)](https://en.wikipedia.org/w/index.php?title=Theodosia_%28see%29&action=edit&redlink=1) (1686.04.27 – ?)
+		- [Ferdinando d'Adda](https://en.wikipedia.org/wiki/Ferdinando_d%27Adda) (1687.03.03 – 1690.02.13), the papal representative to King [James II of England](https://en.wikipedia.org/wiki/James_II_of_England), ?later created [Cardinal-Priest](https://en.wikipedia.org/wiki/Cardinal-Priest) of [S. Clemente](https://en.wikipedia.org/wiki/S._Clemente) (1690.04.10 – 1696.01.02), transferred repeatedly Cardinal-Priest of [S. Balbina](https://en.wikipedia.org/w/index.php?title=S._Balbina&action=edit&redlink=1) (1696.01.02 – 1714.04.16), Prefect of [Sacred Congregation of Rites](https://en.wikipedia.org/wiki/Sacred_Congregation_of_Rites) (1701? – ?), Cardinal-Priest of S. Pietro in Vincoli (1714.04.16 – 1715.01.21), promoted [Cardinal-Bishop](https://en.wikipedia.org/wiki/Cardinal-Bishop) of [Albano](https://en.wikipedia.org/wiki/Suburbicarian_Diocese_of_Albano) (1715.01.21 – death 1719.01.27)
+		- [Agostino Cusani](https://en.wikipedia.org/wiki/Agostino_Cusani) (1696.04.02 – 1711.10.14), [Apostolic Nuncio](https://en.wikipedia.org/wiki/Apostolic_Nuncio) (papal ambassador) to France (1706.05.22 – 1711.10.14), Bishop of [Diocese of Pavia](https://en.wikipedia.org/wiki/Roman_Catholic_Diocese_of_Pavia) (Italy) (1711.10.14 – 1724.07.12), created [Cardinal-Priest](https://en.wikipedia.org/wiki/Cardinal-Priest) of [S. Maria del Popolo](https://en.wikipedia.org/wiki/S._Maria_del_Popolo) (1713.01.30 – death 1730.12.27)
+		- Fabritius Aurelius de Agostini (1712.10.05 – 1712.12.06)
+		- Giovanni Crisostomo Battelli (1716.10.05 – 1725.07.30)
+		- Giovanni Battista Gamberucci (1725.09.05 – 1738.11.28)
+	- On 1742.02.15 it was united (as a mere title) with the residential [Diocese of Pavia](https://en.wikipedia.org/wiki/Roman_Catholic_Diocese_of_Pavia) (Italy).
+	- Since 1819.11.19 it is again suppressed as such and restored nominally as Metropolitan [Titular archbishopric](https://en.wikipedia.org/wiki/Titular_archbishopric) (highest rank, again). It is vacant for decades, having had the following archiepiscopal incumbents since:
+		- Jean-Paul-Gaston de Pins (1824.05.03 – 1850.11.30)
+		- József Krivinai Lonovics (1861.03.29 – 1866.11.27)
+		- Jean-Baptiste-François Pompallier, [Marists](https://en.wikipedia.org/wiki/Marists) (S.M.) (1869.04.19 – 1871.12.21)
+		- Silvestre Guevara y Lira (1877.01.09 – 1882.02.20)
+		- Giuseppe Macchi (1889.04.09 – 1897.08.19)
+		- Paul Rubian (1900.02.24 – 1911.04.16)
+		- Bertram Orth (1908.10.01 – 1931.02.10)
+		- Frantisek Kordác (1931.07.21 – 1934.04.26)
+		- [Gustavo Testa](https://en.wikipedia.org/wiki/Gustavo_Testa) (1934.06.04 – 1959.12.14) as [Apostolic Delegate](https://en.wikipedia.org/wiki/Apostolic_Delegate) (papal diplomatic envoy) to Egypt and Arabia (1934.06.04 – 1945), later created [Cardinal-Priest](https://en.wikipedia.org/wiki/Cardinal-Priest) of [S. Girolamo dei Croati](https://en.wikipedia.org/wiki/S._Girolamo_dei_Croati) (1959.12.17 – death 1969.02.28), Pro-President of [Administration of the Patrimony of the Apostolic See](https://en.wikipedia.org/wiki/Administration_of_the_Patrimony_of_the_Apostolic_See) (1961.10.04 – 1969.02.28), Secretary of [Sacred Congregation for the Oriental Churches](https://en.wikipedia.org/wiki/Sacred_Congregation_for_the_Oriental_Churches) (1962.08.02 – 1965), promoted Pro-Prefect of Sacred Congregation for the Oriental Churches (1965 – 1967.08.15), and next Prefect of Sacred Congregation for the Oriental Churches (1967.08.15 – retired 1968.01.13)
+		- Gaetano Malchiodi (1960.01.26 – 1965.01.22)
+		- [James Patrick Carroll](https://en.wikipedia.org/w/index.php?title=James_Patrick_Carroll&action=edit&redlink=1) (1965.10.15 – 1995.01.14) [[18]](https://en.wikipedia.org/wiki/Amasya#cite_note-18)[[19]](https://en.wikipedia.org/wiki/Amasya#cite_note-19)[[20]](https://en.wikipedia.org/wiki/Amasya#cite_note-20)[[21]](https://en.wikipedia.org/wiki/Amasya#cite_note-21)[[22]](https://en.wikipedia.org/wiki/Amasya#cite_note-22)[[23]](https://en.wikipedia.org/wiki/Amasya#cite_note-23)
+- The legend of Ferhat and Shirin[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=11)]
+	- In its Turkish version, this classic tale of oriental folklore is held to have taken place in Amasya. The nearby mountain __Ferhat__ is named for [Farhad](https://en.wikipedia.org/wiki/Farhad) (Turkish spelling Ferhat), the hero of the legend, who for love of the princess [Shirin](https://en.wikipedia.org/wiki/Shirin) (Turkish spelling Şirin) tried to win her father's favour and permission by tunnelling through the mountain to bring spring water to his palace. Sadly, while he was working he was sent the false information that Shirin had died; upon which he threw himself onto the rocks in his grief. And his beloved princess died soon after. The story has since become a play by [Nâzım Hikmet](https://en.wikipedia.org/wiki/N%C3%A2z%C4%B1m_Hikmet), a novel by [Talip Apaydın](https://en.wikipedia.org/w/index.php?title=Talip_Apayd%C4%B1n&action=edit&redlink=1), and an opera by [Arif Melikov](https://en.wikipedia.org/w/index.php?title=Arif_Melikov&action=edit&redlink=1).[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Climate[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=12)]
+	- Amasya has a [hot-summer Mediterranean climate](https://en.wikipedia.org/wiki/Hot-summer_Mediterranean_climate) (Csa) under [Köppen](https://en.wikipedia.org/wiki/K%C3%B6ppen_climate_classification) classification and a hot summer oceanic climate (Doa) under the [Trewartha](https://en.wikipedia.org/wiki/Trewartha_climate_classification) classification. Also, Amasya is warmer than central Anatolia, and its weather is not as cold in winter months. It has a transitional climate between the oceanic climate of the Black Sea and a continental and Mediterranean climate. However, this narrow valley causes Amasya to have a temperate climate. This effect is due to the Yeşilirmak river that moderates its climate.
+	- [hide]()Climate data for Amasya (1991–2020, extremes 1961–2020)
+	- MonthJanFebMarAprMayJunJulAugSepOctNovDecYear
+	- Record high °C (°F)21.3
+	- (70.3)24.8
+	- (76.6)31.2
+	- (88.2)35.8
+	- (96.4)37.5
+	- (99.5)41.8
+	- (107.2)45.0
+	- (113.0)42.2
+	- (108.0)43.5
+	- (110.3)36.0
+	- (96.8)29.7
+	- (85.5)22.9
+	- (73.2)45.0
+	- (113.0)
+	- Average high °C (°F)7.4
+	- (45.3)10.2
+	- (50.4)15.0
+	- (59.0)20.6
+	- (69.1)25.6
+	- (78.1)29.3
+	- (84.7)31.9
+	- (89.4)32.3
+	- (90.1)28.6
+	- (83.5)22.7
+	- (72.9)14.6
+	- (58.3)8.9
+	- (48.0)20.6
+	- (69.1)
+	- Daily mean °C (°F)2.8
+	- (37.0)4.6
+	- (40.3)8.5
+	- (47.3)13.3
+	- (55.9)17.8
+	- (64.0)21.6
+	- (70.9)24.2
+	- (75.6)24.4
+	- (75.9)20.5
+	- (68.9)15.2
+	- (59.4)8.2
+	- (46.8)4.4
+	- (39.9)13.8
+	- (56.8)
+	- Average low °C (°F)−0.7
+	- (30.7)0.2
+	- (32.4)3.3
+	- (37.9)6.9
+	- (44.4)11.1
+	- (52.0)14.7
+	- (58.5)17.0
+	- (62.6)17.3
+	- (63.1)13.4
+	- (56.1)9.2
+	- (48.6)3.3
+	- (37.9)1.1
+	- (34.0)8.1
+	- (46.6)
+	- Record low °C (°F)−21.0
+	- (−5.8)−20.4
+	- (−4.7)−15.3
+	- (4.5)−5.1
+	- (22.8)−0.1
+	- (31.8)4.8
+	- (40.6)8.5
+	- (47.3)8.8
+	- (47.8)3.0
+	- (37.4)−2.9
+	- (26.8)−9.5
+	- (14.9)−12.7
+	- (9.1)−21.0
+	- (−5.8)
+	- Average [precipitation](https://en.wikipedia.org/wiki/Precipitation) mm (inches)46.2
+	- (1.82)36.7
+	- (1.44)50.2
+	- (1.98)51.9
+	- (2.04)61.3
+	- (2.41)41.0
+	- (1.61)12.9
+	- (0.51)12.9
+	- (0.51)21.3
+	- (0.84)36.4
+	- (1.43)44.6
+	- (1.76)53.8
+	- (2.12)469.2
+	- (18.47)
+	- Average precipitation days10.609.5012.1713.5014.009.233.332.935.338.338.2011.40108.5
+	- Mean monthly [sunshine hours](https://en.wikipedia.org/wiki/Sunshine_duration)68.293.2136.4180.0229.4264.0297.6282.1222.0155.0105.062.02,094.9
+	- Mean daily [sunshine hours](https://en.wikipedia.org/wiki/Sunshine_duration)2.23.34.46.07.48.89.69.17.45.03.52.05.7
+	- Source: [Turkish State Meteorological Service](https://en.wikipedia.org/wiki/Turkish_State_Meteorological_Service)[[24]](https://en.wikipedia.org/wiki/Amasya#cite_note-eather1-24)
+- Amasya today[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=13)]
+	- ![](https://upload.wikimedia.org/wikipedia/en/thumb/9/99/Question_book-new.svg/50px-Question_book-new.svg.png)[🔗](https://en.wikipedia.org/wiki/File:Question_book-new.svg)
+	- This section **does not [cite](https://en.wikipedia.org/wiki/Wikipedia:Citing_sources) any [sources](https://en.wikipedia.org/wiki/Wikipedia:Verifiability)**. Please help [improve this section](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit) by [adding citations to reliable sources](https://en.wikipedia.org/wiki/Help:Referencing_for_beginners). Unsourced material may be challenged and [removed](https://en.wikipedia.org/wiki/Wikipedia:Verifiability#Burden_of_evidence). __(January 2021)____ ([Learn how and when to remove this template message](https://en.wikipedia.org/wiki/Help:Maintenance_template_removal))__
+	- The province of Amasya is known for producing high-quality, small, well-flavoured apples. The Amasya-Tokat region the main area of production. The city is not so developed industrial terms, but is attractive and well-preserved, especially when sitting by the river, which has a particular mystique on a winter evening when fog fills the valley. Tourists (and soldiers from the local base) contribute valuable income to the shopkeepers. The railway line from [Sivas](https://en.wikipedia.org/wiki/Sivas) to [Samsun](https://en.wikipedia.org/wiki/Samsun) runs through Amasya, and there is an attractive Ottoman-era railway station.
+	- The city of Amasya has some nightlife, mainly bars and cafes for visitors, and some basic restaurants. It is not a very conservative city, unlike other central and eastern Anatolian cities. Social life in this city, partly owing to tourism, becomes more animated especially during the summer period. Many international circus groups visit this city. June 12 is a festival date for Amasya during this time, with many cultural and sporting activities on offer.
+	- The local cuisine includes the local specialty __toyga çorbası__, a soup containing [yogurt](https://en.wikipedia.org/wiki/Yogurt), drunk hot or cold. Other specialties include pastries with poppy seeds and tea, served by the riverbank.
+	- There is an airport in the district, open for civilian flights since 2008. Previously, it was used only for military purposes. There are daily one-hour flights from/to [Istanbul](https://en.wikipedia.org/wiki/Istanbul).
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Amasya-Panorama1.jpg/1000px-Amasya-Panorama1.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya-Panorama1.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya-Panorama1.jpg)
+	- Panorama of Amasya
+- Tourism[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=14)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/1/16/%C5%9Eehzadeler_M%C3%BCzesi_%282%29.jpg/220px-%C5%9Eehzadeler_M%C3%BCzesi_%282%29.jpg)[🔗](https://en.wikipedia.org/wiki/File:%C5%9Eehzadeler_M%C3%BCzesi_%282%29.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:%C5%9Eehzadeler_M%C3%BCzesi_%282%29.jpg)
+	- Museum of Ottoman Şehzade
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/%C5%9Eehzadeler_M%C3%BCzesi_i%C3%A7_%282%29.jpg/220px-%C5%9Eehzadeler_M%C3%BCzesi_i%C3%A7_%282%29.jpg)[🔗](https://en.wikipedia.org/wiki/File:%C5%9Eehzadeler_M%C3%BCzesi_i%C3%A7_%282%29.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:%C5%9Eehzadeler_M%C3%BCzesi_i%C3%A7_%282%29.jpg)
+	- interior of the Museum of Ottoman Şehzade
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/Amasya-Castle-01.JPG/220px-Amasya-Castle-01.JPG)[🔗](https://en.wikipedia.org/wiki/File:Amasya-Castle-01.JPG)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya-Castle-01.JPG)
+	- Amasya Castle
+	- Tourism has been increasing. In 2011, there were 500,000 tourists, 11,000 foreign; in 2012, 600,000, 22,000 foreign; in 2013, 750,000 total; 1 million are projected for 2014. Foreign tourists are mostly Germans and East Asians, notably Japan and South Korea. In consequence, many hotels, especially boutique hotels, are opening. Many traditional Ottoman wooden houses have been restored and are now used as boutique hotels, cafes, bars.
+	- The ruins of the citadel on the rock face of the cleft shelters 2000-year-old water-channels, 1000-year-old bridges, a mental hospital, an Ottoman Pontus kings, which contribute very much to the attractiveness of the city. At night, when they are illuminated, the view is unforgettable. Palace and a secret underground passageway. On the rock faces there are impressive rock tombs. The city also has many historically and architecturally precious buildings; the Ferhat water channel, the 13th century Seljuk Burmali Mosque, the 15th century Yildirim Beyazit Mosque and Complex; the 14th century Ilhanli Bimarhane Mental Hospital with lovely relieves around its portal, the extraordinary octagonal Kapi Aga Medrese (theological school), the Torumtay Mausoleum and the Gök Medrese. There are traditional Turkish mansions which have been well-preserved showing the best examples of [Turkish architecture](https://en.wikipedia.org/wiki/Architecture_of_Turkey). The 19th century Hazeranlar Mansion has been restored perfectly and now it is of great interest with an art gallery on its first floor and an ethnographical museum on the second. The [Archaeological Museum of Amasya](https://en.wikipedia.org/wiki/Archaeological_Museum_of_Amasya) has an interesting collection including the mummies of the [Ilhanli rulers](https://en.wikipedia.org/wiki/Ilkhanate) of Amasya.
+		- On the rock of Harşena above the town is the terraced site of the royal palace and the tombs of the kings of [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29) (illuminated at night) which, although not kept in the best condition, are an impressive sight from the town. There are five unit tombs placed at slope of Amasya Castle that all are engraved on the limestone rocks. They extend like a straight wall with the construction and location properties they take attention at the first sight. Their surroundings engraved until they completely separated from the main rock, than they reunite to the main rock with stairs There are some ones large and some ones small totally 18 rock tomb units present The famous geographer Strabon (BC 63 - AC 5) whom born at Amasya, delivers an information that Rock tombs was belonged to Pontus Kings.
+		- Aynalı Cave (Rock Tomb) is approximately three kilometres away from city centre, and on the way of Ziyaret district which way separated to the right from surrounding high way towards Samsun It is the best- decorated and completed tomb among other King Rock Tombs. At the vault section there are six pictures on each right and left walls, which figure out 12 disciple And there are some figures that include men and women on the west and east walls, although there is a composition figure contains the Jesus, the Virgin Mary and Disciple on east wall.
+		- __Harsene Kalesi__ – A fortification, mentioned by Strabo and largely rebuilt in medieval times also lies in ruins on a rocky outcrop above the town. And in the district of Nerkis lies some remainsN of another castle, __Enderun Kalesi__. It is placed on precious rocks named Harşane Mountain at the west of Yeşilırmak river and the city centre. There are four main gates in the castle, which are named Belkıs, Saray (palace), Maydonos, and Meydan (Public Square). There is a water well named Cilanbolu in castle too, moreover water hole and dungeon present in castle A laddered under ground way from the castle that reach to 70 meter below river towards the kings tombs dated to the 3rd century BC.
+		- The town itself has many historically and architecturally valuable buildings, including the Ferhat aqueduct, the 13th century Seljuk Burmali Mosque, the 14th century [Ilkhan](https://en.wikipedia.org/wiki/Ilkhanate) __Bimarhane__ Mental Hospital with lovely reliefs around its portal, the tomb of 15th century scholar [Pir Ilyas](https://en.wikipedia.org/w/index.php?title=Pir_Ilyas&action=edit&redlink=1) and the 15th-century mosque of Yildirim Beyazit. Unfortunately, Amasya is vulnerable to earthquakes which have damaged many monuments (most recently in 1939).
+		- There are a number of well-preserved traditional Ottoman Turkish mansions, some of the best examples of Turkish domestic architecture. The 19th century __Hazeranlar Konağı__ has been carefully restored and includes a small art gallery and ethnographical museum. Other wooden houses are being restored as hotels and guest houses. Hazeranlar mansion is the most beautiful mansion at Yalı boyu (across the waterside residence) houses series mansion is one of the most elegant civil architecture samples of Ottoman period mansion built by Defterdar Hasan Talat Efendi for the name of his sister Hazeran Hanım in the year 1872.
+		- __The Archaeological Museum of Amasya__ has a large and interesting collection, of artefacts from many eras of antiquity, including the mummies of the [Ilkhanid](https://en.wikipedia.org/wiki/Ilkhanate) rulers of Amasya.
+		- Saraydüzü Casern, this building reconstructed in 2009 and opened. The importance of Saraydüzü Casern is that, Amasya Circular was signed in that historical building on 12 June 1919. Atatürk wrote here about the [Amasya Circular](https://en.wikipedia.org/wiki/Amasya_Circular). Today, Saraydüzü Casern is war of liberation museum and using for conferences, meetings, speeches etc. Basically, it is used as a congress center.
+		- A number of tombs of Muslim saints, called __yatır__, are said to emanate healing powers. The sick and dying come to breathe the air and drink the waters of nearby springs.
+		- Ferhat Water Canal was built at the Hellenistic Period to fulfil city's water necessity, it is approximately 75 width and 18 kilometers long.
+		- Lake Borabay (65 km northeast of Amasya in the district of [Taşova](https://en.wikipedia.org/wiki/Ta%C5%9Fova)) is a crater lake with an impressive view and fresh air. It is a perfect area for fishing (especially trout), picnicking and sports.
+		- Other excursion sites from Amasya include [Yedikir](https://en.wikipedia.org/w/index.php?title=Yedikir&action=edit&redlink=1) reservoir and [Omarca](https://en.wikipedia.org/w/index.php?title=Omarca&action=edit&redlink=1) National Park.
+		- Terziköy thermal spring is one of the most important springs of the province Gözlek thermal spring, Hamamözü (Arkut Bey) thermal spring and Ilısu thermal spring are the other thermal springs of Amasya.
+		- Amasya was also one of the Turkish cities which had the best viewing location for the last total solar eclipse of the 20th century which happened on 11 August 1999. Many visitors came to the city to witness this spectacular event. On 29 March 2006, another total solar eclipse was seen in this city at 14:06pm local time.
+- Economy[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=15)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Amasya_Museum_34.jpg/220px-Amasya_Museum_34.jpg)[🔗](https://en.wikipedia.org/wiki/File:Amasya_Museum_34.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya_Museum_34.jpg)
+	- Amasya Archaeological Museum
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/43/Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-02.JPG/220px-Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-02.JPG)[🔗](https://en.wikipedia.org/wiki/File:Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-02.JPG)
+	- [🔗](https://en.wikipedia.org/wiki/File:Amasya-Kap%C4%B1-A%C4%9Fas%C4%B1-Medrese-02.JPG)
+	- Kapı-Ağası-Madrasah in Amasya
+	- The region's valley structure and this valley structure provide a temperate climate for many fruits growing. Other economic activities in the region include mining, textiles and cement manufacture. Most part of the city's economy comes from agriculture and agricultural products likewise, greenstuffes and fruit production are also important incomes for the Amasya's economy. Villages have economically concentrated relations with districts of Amasya. In recent years, electrical machine production and household tools (ankastre, kitchen tools, exhauster, paddle box), algiculture and woodcraft machines, textile and food industry was developed in the Merzifon district of Amasya.
+	- Agricultural products of the city mostly consist of products like apple, cherry, okra, onion, poppy seeds, lentil, bean and peach. In additionally, agro-based industries have an important place for the local economy. Sucrose, dairy products, egg, sunflower oil, provender, flour, yeast are major agro-based industries in Amasya; the industrial products are relatively limited. The most major industries are lime, brick, marble, ankanstre kitchen tools, furniture, lignite coal, metal and plastic industrial products. These products trades domestically and are exported. Marble exporting is considerable for the city's economy. Amasya is the second city in the country in marble exporting. In addition to that, Amasya is under the average of the country which is working in the industry employment.
+	- [Amasya University](https://en.wikipedia.org/wiki/Amasya_University) was founded in 2006 (before it associated to Samsun University 19 May).
+	- Amasya is a city on the road of the Europe and Iran international way and it connects Samsun port to the interior regions of the country. The Amasya-Merzifon airport opened up in 2008. In related with that, cultural tourism achieved considerable place. Amasya is the starting point of the Black Sea tours within the country. Cappadocia tours also cover the city of Amasya. Cultural and Tourism Ministry determined 15 cities which is the trademark cities around the country includes Amasya. These developments also influence economy of the city positively because tourism triggers to other sectors but still the city of Amasya is not where it wants.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Cuisine[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=16)]
+	- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Tokat_ke%C5%9Fke%C4%9Fi.jpg/220px-Tokat_ke%C5%9Fke%C4%9Fi.jpg)[🔗](https://en.wikipedia.org/wiki/File:Tokat_ke%C5%9Fke%C4%9Fi.jpg)
+	- [🔗](https://en.wikipedia.org/wiki/File:Tokat_ke%C5%9Fke%C4%9Fi.jpg)
+	- [Keşkek](https://en.wikipedia.org/wiki/Ke%C5%9Fkek) was confirmed to be an Intangible Cultural Heritage of Turkey by UNESCO
+	- Having served for many civilizations as the capital city, and for the future sultans of the Ottomans as an academy, Amasya, also known as the City of the [Şehzade](https://en.wikipedia.org/wiki/%C5%9Eehzade), has developed a regal cuisine with characteristic taste, looks and quality. An example of the local food is __[keşkek](https://en.wikipedia.org/wiki/Ke%C5%9Fkek)__, which has always been one of the most popular dishes of the region. __Bakla dolması__ ([dolma](https://en.wikipedia.org/wiki/Dolma) with a filling of meat and [broad beans](https://en.wikipedia.org/wiki/Broad_bean)) is another characteristic local specialty.
+	- Cream cakes were another indispensable item in the former palace menu. Local varieties of bread include cherry bread, and slices of stale bread are used to make a dessert called __Unutma Beni__ (which means "Forget me not").
+- Notable natives[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=17)]
+	- [Sabuncuoglu Serafeddin](https://en.wikipedia.org/wiki/Sabuncuo%C4%9Flu_%C5%9Eerafeddin), 15th century, Turkish Physician and Surgean
+	- [Amirdovlat of Amasia](https://en.wikipedia.org/wiki/Amirdovlat_of_Amasia), 15th century [Armenian](https://en.wikipedia.org/wiki/Armenia) physician and writer
+	- [Hamdi Apaydın](https://en.wikipedia.org/wiki/Hamdi_Apayd%C4%B1n), MP of the first parliament of Turkey
+	- [Uğur Dağdelen](https://en.wikipedia.org/wiki/U%C4%9Fur_Da%C4%9Fdelen), footballer
+	- [Mahmut Demir](https://en.wikipedia.org/wiki/Mahmut_Demir), world, Olympic and European champion sports wrestler
+	- [Serkan Erdoğan](https://en.wikipedia.org/wiki/Serkan_Erdo%C4%9Fan), basketball player
+	- [Hamit Kaplan](https://en.wikipedia.org/wiki/Hamit_Kaplan), world and Olympic champion sports wrestler
+	- [Adem Ören](https://en.wikipedia.org/wiki/Adem_%C3%96ren), basketball player
+	- [İlkay Özdemir](https://en.wikipedia.org/wiki/%C4%B0lkay_%C3%96zdemir), female performer of stage magic
+	- [Okan Öztürk](https://en.wikipedia.org/wiki/Okan_%C3%96zt%C3%BCrk), footballer
+	- [Merzifonlu Kara Mustafa Paşa](https://en.wikipedia.org/wiki/Merzifonlu_Kara_Mustafa_Pa%C5%9Fa), an Ottoman military leader and grand vizier
+	- [Amasyalı Bayezid Pasha](https://en.wikipedia.org/wiki/Amasyal%C4%B1_Bayezid_Pasha), Grand Vizier of the Ottoman Empire
+	- [Tahsin Şahinkaya](https://en.wikipedia.org/wiki/Tahsin_%C5%9Eahinkaya), Turkish Soldier-General
+	- [Yavuz Sultan Selim (I.Selim)](https://en.wikipedia.org/wiki/Selim_I), Ottoman Sultan
+	- [Strabo](https://en.wikipedia.org/wiki/Strabo), ancient geographer and historian (died in 23 AD)
+	- [St. Theodore Teron](https://en.wikipedia.org/wiki/Theodore_of_Amasea), Christian Saint (martyred in 306 AD)
+	- [Erdem Türetken](https://en.wikipedia.org/wiki/Erdem_T%C3%BCretken), basketball player
+	- [Léon Arthur Tutundjian](https://en.wikipedia.org/wiki/L%C3%A9on_Arthur_Tutundjian), Armenian painter
+	- [Ahmet Yıldırım](https://en.wikipedia.org/wiki/Ahmet_Y%C4%B1ld%C4%B1r%C4%B1m), footballer
+	- Eulalius (Εὐλάλιος), bishop of Amasia[[25]](https://en.wikipedia.org/wiki/Amasya#cite_note-25)
+- Population[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=18)]
+	- In 2012, the permanent population of the city was 91,874. The birth rate of Amasya is low, so its population has been increasing slowly. The population varies seasonally, most people are here during the summer tourist season.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Geography[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=19)]
+	- Situated between the [Black Sea](https://en.wikipedia.org/wiki/Black_Sea) and inner [Anatolia](https://en.wikipedia.org/wiki/Anatolia) in a region of fertile plains irrigated by the [Tersakan](https://en.wikipedia.org/w/index.php?title=Tersakan&action=edit&redlink=1), [Çekerek](https://en.wikipedia.org/wiki/%C3%87ekerek) and [Yeşilırmak](https://en.wikipedia.org/wiki/Ye%C5%9Fil_River) rivers, Amasya lies in a beautiful narrow river valley, bounded by almost vertical cliffs and the high peaks of the [Canik](https://en.wikipedia.org/wiki/Canik) and [Pontus](https://en.wikipedia.org/wiki/Pontus_%28region%29) mountains. Despite the mountainous location, it is not far above sea level. This makes its climate more temperate.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+	- Five bridges cross the river, and most of the town lies on the southern bank, spread along the river. The climb up to the higher ground is very steep, making the valley walls virtually uninhabitable. The town is shaped like the letter 'v' as it follows a sharp bend in the river.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Settlements in the district[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=20)]
+- Townships[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=21)]
+	- [Aydınca](https://en.wikipedia.org/wiki/Ayd%C4%B1nca,_Amasya)
+	- [Doğantepe](https://en.wikipedia.org/wiki/Do%C4%9Fantepe,_Amasya)
+	- [Ezinepazar](https://en.wikipedia.org/w/index.php?title=Ezinepazar,_Amasya&action=edit&redlink=1)
+	- [Uygur](https://en.wikipedia.org/wiki/Uygur,_Amasya)
+	- [Yassıçal](https://en.wikipedia.org/w/index.php?title=Yass%C4%B1%C3%A7al,_Amasya&action=edit&redlink=1)
+	- [Yeşilyenice](https://en.wikipedia.org/wiki/Ye%C5%9Filyenice,_Amasya)
+	- [Ziyaret](https://en.wikipedia.org/wiki/Ziyaret,_Amasya)
+- Villages[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=22)]
+	- [Abacı](https://en.wikipedia.org/wiki/Abac%C4%B1,_Amasya)
+	- [Ağılönü](https://en.wikipedia.org/wiki/A%C4%9F%C4%B1l%C3%B6n%C3%BC,_Amasya)
+	- [Aksalur](https://en.wikipedia.org/wiki/Aksalur,_Amasya)
+	- [Aktaş](https://en.wikipedia.org/wiki/Akta%C5%9F,_Amasya)
+	- [Akyazı](https://en.wikipedia.org/wiki/Akyaz%C4%B1,_Amasya)
+	- [Alakadı](https://en.wikipedia.org/wiki/Alakad%C4%B1,_Amasya)
+	- [Albayrak](https://en.wikipedia.org/wiki/Albayrak,_Amasya)
+	- [Ardıçlar](https://en.wikipedia.org/wiki/Ard%C4%B1%C3%A7lar,_Amasya)
+	- [Avşar](https://en.wikipedia.org/wiki/Av%C5%9Far,_Amasya)
+	- [Aydoğdu](https://en.wikipedia.org/wiki/Aydo%C4%9Fdu,_Amasya)
+	- [Aydınlık](https://en.wikipedia.org/wiki/Ayd%C4%B1nl%C4%B1k,_Amasya)
+	- [Bayat](https://en.wikipedia.org/wiki/Bayat,_Amasya)
+	- [Bağlarüstü](https://en.wikipedia.org/wiki/Ba%C4%9Flar%C3%BCst%C3%BC,_Amasya)
+	- [Bağlıca](https://en.wikipedia.org/wiki/Ba%C4%9Fl%C4%B1ca,_Amasya)
+	- [Beke](https://en.wikipedia.org/wiki/Beke,_Amasya)
+	- [Beldağı](https://en.wikipedia.org/wiki/Belda%C4%9F%C4%B1,_Amasya)
+	- [Boğaköy](https://en.wikipedia.org/wiki/Bo%C4%9Fak%C3%B6y,_Amasya)
+	- [Boğazköy](https://en.wikipedia.org/wiki/Bo%C4%9Fazk%C3%B6y,_Amasya)
+	- [Bulduklu](https://en.wikipedia.org/wiki/Bulduklu,_Amasya)
+	- ∗ [Büyükkızılca](https://en.wikipedia.org/w/index.php?title=B%C3%BCy%C3%BCkk%C4%B1z%C4%B1lca,_Amasya&action=edit&redlink=1)
+		- [Böke](https://en.wikipedia.org/wiki/B%C3%B6ke,_Amasya)
+		- [Çatalçam](https://en.wikipedia.org/wiki/%C3%87atal%C3%A7am,_Amasya)
+		- [Çavuşköy](https://en.wikipedia.org/wiki/%C3%87avu%C5%9Fk%C3%B6y,_Amasya)
+		- [Çengelkayı](https://en.wikipedia.org/wiki/%C3%87engelkay%C4%B1,_Amasya)
+		- [Çivi](https://en.wikipedia.org/wiki/%C3%87ivi,_Amasya)
+		- [Çiğdemlik](https://en.wikipedia.org/wiki/%C3%87i%C4%9Fdemlik,_Amasya)
+		- [Dadıköy](https://en.wikipedia.org/wiki/Dad%C4%B1k%C3%B6y,_Amasya)
+		- [Damudere](https://en.wikipedia.org/wiki/Damudere,_Amasya)
+		- [Değirmendere](https://en.wikipedia.org/wiki/De%C4%9Firmendere,_Amasya)
+		- [Direkli](https://en.wikipedia.org/wiki/Direkli,_Amasya)
+		- [Duruca](https://en.wikipedia.org/wiki/Duruca,_Amasya)
+		- [Eliktekke](https://en.wikipedia.org/wiki/Eliktekke,_Amasya)
+		- [Eskikızılca](https://en.wikipedia.org/wiki/Eskik%C4%B1z%C4%B1lca,_Amasya)
+		- [Fındıklı](https://en.wikipedia.org/wiki/F%C4%B1nd%C4%B1kl%C4%B1,_Amasya)
+		- [Gökdere](https://en.wikipedia.org/wiki/G%C3%B6kdere,_Amasya)
+		- [Gözlek](https://en.wikipedia.org/wiki/G%C3%B6zlek,_Amasya)
+		- [İbecik](https://en.wikipedia.org/wiki/%C4%B0becik,_Amasya)
+		- [İlgazi](https://en.wikipedia.org/wiki/%C4%B0lgazi,_Amasya)
+		- [İlyas](https://en.wikipedia.org/wiki/%C4%B0lyas,_Amasya)
+		- [İpekköy](https://en.wikipedia.org/wiki/%C4%B0pekk%C3%B6y,_Amasya)
+		- [Halifeli](https://en.wikipedia.org/wiki/Halifeli,_Amasya)
+		- [Hasabdal](https://en.wikipedia.org/wiki/Hasabdal,_Amasya)
+		- [Kaleboğazı](https://en.wikipedia.org/wiki/Kalebo%C4%9Faz%C4%B1,_Amasya)
+		- [Kaleköy](https://en.wikipedia.org/wiki/Kalek%C3%B6y,_Amasya)
+		- [Kapıkaya](https://en.wikipedia.org/wiki/Kap%C4%B1kaya,_Amasya)
+		- [Karaali](https://en.wikipedia.org/wiki/Karaali,_Amasya)
+		- [Karaibrahim](https://en.wikipedia.org/wiki/Karaibrahim,_Amasya)
+		- [Karakese](https://en.wikipedia.org/wiki/Karakese,_Amasya)
+		- [Karaköprü](https://en.wikipedia.org/wiki/Karak%C3%B6pr%C3%BC,_Amasya)
+		- [Karaçavuş](https://en.wikipedia.org/wiki/Kara%C3%A7avu%C5%9F,_Amasya)
+		- [Karsan](https://en.wikipedia.org/wiki/Karsan,_Amasya)
+		- [Kayabaşı](https://en.wikipedia.org/wiki/Kayaba%C5%9F%C4%B1,_Amasya)
+		- [Kayacık](https://en.wikipedia.org/wiki/Kayac%C4%B1k,_Amasya)
+		- [Keçili](https://en.wikipedia.org/wiki/Ke%C3%A7ili,_Amasya)
+		- [Keşlik](https://en.wikipedia.org/wiki/Ke%C5%9Flik,_Amasya)
+		- [Kutlu](https://en.wikipedia.org/wiki/Kutlu,_Amasya)
+		- [Kuzgeçe](https://en.wikipedia.org/wiki/Kuzge%C3%A7e,_Amasya)
+		- [Köyceğiz](https://en.wikipedia.org/wiki/K%C3%B6yce%C4%9Fiz,_Amasya)
+		- [Küçükkızılca](https://en.wikipedia.org/wiki/K%C3%BC%C3%A7%C3%BCkk%C4%B1z%C4%B1lca,_Amasya)
+		- [Kızseki](https://en.wikipedia.org/wiki/K%C4%B1zseki,_Amasya)
+		- [Kızılca](https://en.wikipedia.org/wiki/K%C4%B1z%C4%B1lca,_Amasya)
+		- [Kızılkışlacık](https://en.wikipedia.org/wiki/K%C4%B1z%C4%B1lk%C4%B1%C5%9Flac%C4%B1k,_Amasya)
+		- [Mahmatlar](https://en.wikipedia.org/wiki/Mahmatlar,_Amasya)
+		- [Meşeliçiftliğiköyü](https://en.wikipedia.org/wiki/Me%C5%9Feli%C3%A7iftli%C4%9Fik%C3%B6y%C3%BC,_Amasya)
+		- [Musaköy](https://en.wikipedia.org/wiki/Musak%C3%B6y,_Amasya)
+		- [Ormanözü](https://en.wikipedia.org/wiki/Orman%C3%B6z%C3%BC,_Amasya)
+		- [Ortaköy](https://en.wikipedia.org/wiki/Ortak%C3%B6y,_Amasya)
+		- [Ovasaray](https://en.wikipedia.org/wiki/Ovasaray,_Amasya)
+		- [Özfındıklı](https://en.wikipedia.org/wiki/%C3%96zf%C4%B1nd%C4%B1kl%C4%B1,_Amasya)
+		- [Saraycık](https://en.wikipedia.org/wiki/Sarayc%C4%B1k,_Amasya)
+		- [Sarayözü](https://en.wikipedia.org/wiki/Saray%C3%B6z%C3%BC,_Amasya)
+		- [Sarıalan](https://en.wikipedia.org/wiki/Sar%C4%B1alan,_Amasya)
+		- [Sarıkız](https://en.wikipedia.org/wiki/Sar%C4%B1k%C4%B1z,_Amasya)
+		- [Sarılar](https://en.wikipedia.org/wiki/Sar%C4%B1lar,_Amasya)
+		- [Sarımeşe](https://en.wikipedia.org/wiki/Sar%C4%B1me%C5%9Fe,_Amasya)
+		- [Sarıyar](https://en.wikipedia.org/wiki/Sar%C4%B1yar,_Amasya)
+		- [Sazköy](https://en.wikipedia.org/wiki/Sazk%C3%B6y,_Amasya)
+		- [Selimiye](https://en.wikipedia.org/wiki/Selimiye,_Amasya)
+		- [Sevincer](https://en.wikipedia.org/wiki/Sevincer,_Amasya)
+		- [Sıracevizler](https://en.wikipedia.org/wiki/S%C4%B1racevizler,_Amasya)
+		- [Şeyhsadi](https://en.wikipedia.org/wiki/%C5%9Eeyhsadi,_Amasya)
+		- [Tatar](https://en.wikipedia.org/wiki/Tatar,_Amasya)
+		- [Toklucak](https://en.wikipedia.org/wiki/Toklucak,_Amasya)
+		- [Tuzluçal](https://en.wikipedia.org/wiki/Tuzlu%C3%A7al,_Amasya)
+		- [Tuzsuz](https://en.wikipedia.org/wiki/Tuzsuz,_Amasya)
+		- [Ümük](https://en.wikipedia.org/wiki/%C3%9Cm%C3%BCk,_Amasya)
+		- [Vermiş](https://en.wikipedia.org/wiki/Vermi%C5%9F,_Amasya)
+		- [Yavru](https://en.wikipedia.org/wiki/Yavru,_Amasya)
+		- [Yaylacık](https://en.wikipedia.org/wiki/Yaylac%C4%B1k,_Amasya)
+		- [Yağcıabdal](https://en.wikipedia.org/wiki/Ya%C4%9Fc%C4%B1abdal,_Amasya)
+		- [Yağmur](https://en.wikipedia.org/wiki/Ya%C4%9Fmur,_Amasya)
+		- [Yeşildere](https://en.wikipedia.org/wiki/Ye%C5%9Fildere,_Amasya)
+		- [Yeşiltepe](https://en.wikipedia.org/wiki/Ye%C5%9Filtepe,_Amasya)
+		- [Yeşilöz](https://en.wikipedia.org/wiki/Ye%C5%9Fil%C3%B6z,_Amasya)
+		- [Yolyanı](https://en.wikipedia.org/wiki/Yolyan%C4%B1,_Amasya)
+		- [Yuvacık](https://en.wikipedia.org/wiki/Yuvac%C4%B1k,_Amasya)
+		- [Yuvaköy](https://en.wikipedia.org/wiki/Yuvak%C3%B6y,_Amasya)
+		- [Yıkılgan](https://en.wikipedia.org/wiki/Y%C4%B1k%C4%B1lgan,_Amasya)
+		- [Yıldızköy](https://en.wikipedia.org/wiki/Y%C4%B1ld%C4%B1zk%C3%B6y,_Amasya)
+- Twin cities[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=23)]
+	- ![Albania](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Flag_of_Albania.svg/21px-Flag_of_Albania.svg.png)[🔗](https://en.wikipedia.org/wiki/Albania) [Berat](https://en.wikipedia.org/wiki/Berat), [Albania](https://en.wikipedia.org/wiki/Albania)
+	- ![Italy](https://upload.wikimedia.org/wikipedia/en/thumb/0/03/Flag_of_Italy.svg/23px-Flag_of_Italy.svg.png)[🔗](https://en.wikipedia.org/wiki/Italy) [Brindisi](https://en.wikipedia.org/wiki/Brindisi), [Italy](https://en.wikipedia.org/wiki/Italy)
+	- ![Turkey](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Flag_of_Turkey.svg/23px-Flag_of_Turkey.svg.png)[🔗](https://en.wikipedia.org/wiki/Turkey) [Bursa](https://en.wikipedia.org/wiki/Bursa), [Turkey](https://en.wikipedia.org/wiki/Turkey)
+	- ![Italy](https://upload.wikimedia.org/wikipedia/en/thumb/0/03/Flag_of_Italy.svg/23px-Flag_of_Italy.svg.png)[🔗](https://en.wikipedia.org/wiki/Italy) [Lecce](https://en.wikipedia.org/wiki/Lecce), [Italy](https://en.wikipedia.org/wiki/Italy)
+	- ![Turkey](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Flag_of_Turkey.svg/23px-Flag_of_Turkey.svg.png)[🔗](https://en.wikipedia.org/wiki/Turkey) [Manisa](https://en.wikipedia.org/wiki/Manisa), [Turkey](https://en.wikipedia.org/wiki/Turkey)
+	- ![Kyrgyzstan](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Flag_of_Kyrgyzstan.svg/23px-Flag_of_Kyrgyzstan.svg.png)[🔗](https://en.wikipedia.org/wiki/Kyrgyzstan) [Osh](https://en.wikipedia.org/wiki/Osh), [Kyrgyzstan](https://en.wikipedia.org/wiki/Kyrgyzstan)
+	- ![Kosovo](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1f/Flag_of_Kosovo.svg/21px-Flag_of_Kosovo.svg.png)[🔗](https://en.wikipedia.org/wiki/Kosovo) [Prizren](https://en.wikipedia.org/wiki/Prizren), [Kosovo](https://en.wikipedia.org/wiki/Kosovo)
+	- ![Japan](https://upload.wikimedia.org/wikipedia/en/thumb/9/9e/Flag_of_Japan.svg/23px-Flag_of_Japan.svg.png)[🔗](https://en.wikipedia.org/wiki/Japan) [Sapporo](https://en.wikipedia.org/wiki/Sapporo), [Japan](https://en.wikipedia.org/wiki/Japan)
+	- ![Azerbaijan](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Flag_of_Azerbaijan.svg/23px-Flag_of_Azerbaijan.svg.png)[🔗](https://en.wikipedia.org/wiki/Azerbaijan) [Shamakhi](https://en.wikipedia.org/wiki/Shamakhi), [Azerbaijan](https://en.wikipedia.org/wiki/Azerbaijan)
+	- ![Germany](https://upload.wikimedia.org/wikipedia/en/thumb/b/ba/Flag_of_Germany.svg/23px-Flag_of_Germany.svg.png)[🔗](https://en.wikipedia.org/wiki/Germany) [Solingen](https://en.wikipedia.org/wiki/Solingen), [Germany](https://en.wikipedia.org/wiki/Germany)
+	- ![Romania](https://upload.wikimedia.org/wikipedia/commons/thumb/7/73/Flag_of_Romania.svg/23px-Flag_of_Romania.svg.png)[🔗](https://en.wikipedia.org/wiki/Romania) [Tulcea](https://en.wikipedia.org/wiki/Tulcea), [Romania](https://en.wikipedia.org/wiki/Romania)
+	- Source:[[26]](https://en.wikipedia.org/wiki/Amasya#cite_note-26)
+- See also[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=24)]
+	- [Rûm Province, Ottoman Empire](https://en.wikipedia.org/wiki/R%C3%BBm_Province,_Ottoman_Empire)
+- References[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=25)]
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-distr-area_1-0)** ["Area of regions (including lakes), km²"](http://tuikapp.tuik.gov.tr/Bolgesel/menuAction.do?dil=en). __Regional Statistics Database__. Turkish Statistical Institute. 2002. Retrieved 2013-03-05.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-population_2-0)** ["Population of province/district centers and towns/villages by districts - 2012"](http://rapor.tuik.gov.tr/reports/rwservlet?adnksdb2&ENVID=adnksdb2Env&report=wa_turkiye_ilce_koy_sehir.RDF&p_il1=5&p_kod=1&p_yil=2012&p_dil=2&desformat=html). __Address Based Population Registration System (ABPRS) Database__. Turkish Statistical Institute. Retrieved 2013-02-27.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-Brit_3-0)** "Amasya" in __[The New Encyclopædia Britannica](https://en.wikipedia.org/wiki/Encyclop%C3%A6dia_Britannica)__. Chicago: [Encyclopædia Britannica Inc.](https://en.wikipedia.org/wiki/Encyclop%C3%A6dia_Britannica_Inc.), 15th edn., 1992, Vol. 1, p. 313.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-4)** [Strabo](https://en.wikipedia.org/wiki/Strabo) __[Geographica](https://en.wikipedia.org/wiki/Geographica)__, (12.561).
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-OCD_5-0)** Mitchell, Stephen (1996), "Amaseia", in [Hornblower, Simon](https://en.wikipedia.org/wiki/Simon_Hornblower); [Spawforth, Anthony](https://en.wikipedia.org/w/index.php?title=Anthony_Spawforth&action=edit&redlink=1) (eds.), [__Oxford Classical Dictionary__](https://en.wikipedia.org/wiki/Oxford_Classical_Dictionary) (3rd ed.), Oxford: Oxford University Press, [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-19-521693-6](https://en.wikipedia.org/wiki/Special:BookSources/978-0-19-521693-6)
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-6)** ["The Alexiad, translated by Elizabeth A. S. Dawes | Anna Comnena; Dawes, Elizabeth A. S. (trans.) | download"](https://b-ok.cc/book/2719273/eee835). __b-ok.cc__.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-7)** ["1,800-year-old mosaic reveals symbol of Black Sea province"](https://www.hurriyetdailynews.com/1-800-year-old-mosaic-reveals-symbol-of-black-sea-province-156720). __hurriyetdailynews__. 21 July 2020. Retrieved 21 July 2020.
+	- ^ [Jump up to:__**a**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-0) [__**b**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-1) [__**c**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-2) [__**d**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-3) [__**e**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-4) [__**f**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-5) [__**g**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-6) [__**h**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-7) [__**i**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-8) [__**j**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-9) [__**k**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-EI2_8-10) Taeschner, Fr. (1960). ["Amasya"](https://doi.org/10.1163/1573-3912_islam_SIM_0583). In [Gibb, H. A. R.](https://en.wikipedia.org/wiki/H._A._R._Gibb); [Kramers, J. H.](https://en.wikipedia.org/wiki/Johannes_Hendrik_Kramers); [Lévi-Provençal, E.](https://en.wikipedia.org/wiki/%C3%89variste_L%C3%A9vi-Proven%C3%A7al); [Schacht, J.](https://en.wikipedia.org/wiki/Joseph_Schacht); [Lewis, B.](https://en.wikipedia.org/wiki/Bernard_Lewis) & [Pellat, Ch.](https://en.wikipedia.org/wiki/Charles_Pellat) (eds.). __The Encyclopaedia of Islam, New Edition, Volume I: A–B__. Leiden: E. J. Brill. pp. 431–432. [OCLC](https://en.wikipedia.org/wiki/OCLC_%28identifier%29) [495469456](https://www.worldcat.org/oclc/495469456).
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-Houtsma_1987_9-0)** Houtsma, M. Th (1987). __E.J. Brill's First Encyclopaedia of Islam 1913-1936, Volume 1__. BRILL. p. 1154. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [9789004082656](https://en.wikipedia.org/wiki/Special:BookSources/9789004082656). YAKUT al-MUSTA'SIMI, Djamal al-DIn Auu 'l-Madjd ... some say he was a Greek from Amasia; he was probably carried off on a razzia while still very young. He was a eunuch.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-10)** Kastritsis, Dimitris (2007). [__The Sons of Bayezid: Empire Building and Representation in the Ottoman Civil War of 1402-13__](https://books.google.com/books?id=u_evCQAAQBAJ). BRILL. p. 65. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-90-04-15836-8](https://en.wikipedia.org/wiki/Special:BookSources/978-90-04-15836-8).
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-11)** Kastritsis, Dimitris (2007). [__The Sons of Bayezid: Empire Building and Representation in the Ottoman Civil War of 1402-13__](https://books.google.com/books?id=u_evCQAAQBAJ). BRILL. pp. 63ff. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-90-04-15836-8](https://en.wikipedia.org/wiki/Special:BookSources/978-90-04-15836-8).
+	- ^ [Jump up to:__**a**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-jewishencyclopedia.com_12-0) [__**b**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-jewishencyclopedia.com_12-1) ["AMASIA, AMASIEH - JewishEncyclopedia.com"](http://jewishencyclopedia.com/articles/1367-amasia-amasieh). __jewishencyclopedia.com__. Retrieved 2017-12-02.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-13)** Carl C. Compton (2008), The Morning Cometh: 45 Years with Anatolia College, pp. 88-98.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-Hofmann208_14-0)** Hofmann, p. 208
+	- ^ [Jump up to:__**a**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-ehw_15-0) [__**b**__](https://en.wikipedia.org/wiki/Amasya#cite_ref-ehw_15-1) Christopoulos, Evanggelos. of the Hellenic World http://asiaminor.ehw.gr/forms/filePage.aspx?lemmaId=7200. Retrieved 13 January 2017. {{[cite web](https //en.wikipedia.org/wiki/Template:Cite_web)}}: Missing or empty |title= ([help](https://en.wikipedia.org/wiki/Help:CS1_errors#citation_missing_title))
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-16)** Lequien, Oriens Christianus (1740), I, 521–532
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-17)** __Annuario Pontificio 2013__ (Libreria Editrice Vaticana 2013 [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-88-209-9070-1](https://en.wikipedia.org/wiki/Special:BookSources/978-88-209-9070-1)), p. 821
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-18)** [Amasea (Titular See)](http://www.catholic-hierarchy.org/diocese/d2a86.html). [Catholic-Hierarchy] (2011-04-09). Retrieved on 2011-04-16.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-19)** Pius Bonifacius Gams, [__Series episcoporum Ecclesiae Catholicae__](http://www.wbc.poznan.pl/dlibra/doccontent?id=65154&dirids=1), Leipzig 1931, p. 442
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-20)** Michel Lequien, [__Oriens christianus in quatuor Patriarchatus digestus__](https://books.google.com/books?id=0agp0mJFG_sC&printsec=frontcover#v=onepage&q&f=false), Paris 1740, vol. I, coll. 521-532
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-21)** Konrad Eubel, __Hierarchia Catholica Medii Aevi__, [vol. 4](https://archive.org/stream/hierarchiacathol04eubeuoft#page/80/mode/1up), p. 80; [vol. 5](https://archive.org/stream/hierarchiacathol05eubeuoft#page/80/mode/1up), p. 80; [vol. 6](https://archive.org/stream/hierarchiacathol06eubeuoft#page/79/mode/1up), p. 79; vol. 7, p. 69; vol. 8, p. 92
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-22)** Heinrich Gelzer, [__Ungedruckte und ungenügend veröffentlichte Texte der Notitiae episcopatuum__](https://archive.org/stream/abhandlungenbay06klasgoog#page/n567/mode/2up), in: Abhandlungen der philosophisch-historische classe der bayerische Akademie der Wissenschaften, 1901, pp. 529–641
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-23)** Siméon Vailhé, v. __Amasea__, in [__Dictionnaire d'Histoire et de Géographie ecclésiastiques__](http://gallica.bnf.fr/ark:/12148/bpt6k6561037d/f506.image), vol. XII, Paris 1953, coll. 964-970
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-eather1_24-0)** ["Resmi İstatistikler: İllerimize Ait Mevism Normalleri (1991–2020)"](https://www.mgm.gov.tr/veridegerlendirme/il-ve-ilceler-istatistik.aspx?k=H&m=AMASYA) (in Turkish). Turkish State Meteorological Service. Retrieved 26 June 2021.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-25)** ["Capitains Nemo"](http://cts.perseids.org/read/greekLit/tlg2048/tlg001/1st1K-grc1/7.2). __cts.perseids.org__.
+	- **[^](https://en.wikipedia.org/wiki/Amasya#cite_ref-26)** ["Amasya Belediyesi Kardeş Şehirleri"](http://www.amasya.bel.tr/icerik/265/8/amasya-belediyesi-kardes-sehirleri.aspx). __amasya.bel.tr__ (in Turkish). Municipality of Amasya. 17 February 2015. Retrieved 28 December 2018.
+- Sources and external links[[edit](https://en.wikipedia.org/w/index.php?title=Amasya&action=edit&section=26)]
+	- ![](https://upload.wikimedia.org/wikipedia/en/thumb/4/4a/Commons-logo.svg/30px-Commons-logo.svg.png)Wikimedia Commons has media related to [**Amasya**](https://commons.wikimedia.org/wiki/Amasya).
+		- ![](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Wikivoyage-Logo-v3-icon.svg/16px-Wikivoyage-Logo-v3-icon.svg.png)[🔗](https://en.wikipedia.org/wiki/File:Wikivoyage-Logo-v3-icon.svg) [Amasya](https://en.wikivoyage.org/wiki/Amasya#Q170532) travel guide from Wikivoyage
+		- [Provincial governorate official website](http://www.amasya.gov.tr/)
+		- [Municipality official website](http://www.amasya.bel.tr/)
+		- [Over 500 pictures of city and sights](http://www.pbase.com/dosseman/amasya_turkey)
+		- [GCatholic with titular incumbent bio links](http://www.gcatholic.org/dioceses/former/t0105.htm)
