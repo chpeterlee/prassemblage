@@ -1,0 +1,30 @@
+- ---
+- # 1. Introduction
+- [[Statistical Review]] is a method of peer review designed to triangulate inferences of system states. Statistical review can be deployed by human-machine agents. The protocol operates in 3 stages as follows:
+	- 1. There are 3 major verification processes of the [[SRP]] used to triangulate verification of strong [[inference]]s:
+		- Physical evidence.
+		- Simulations of philostatistical models.
+		- AI-aided search and strong [[inference]] of existing datasets.
+	- 2. Inferences can be parameterized in 3 dimensions:
+		- Accuracy, or [[Inferential Distance]]
+		- Probability
+		- [[possibility space]] or [[Problem Space]]
+	- 3. Inferences can be grouped into components of time-scaled functions as follows:
+		- [[1 - General Sections/Personal Organized/16 - Notebook Scraps/Tasks]], [[function]], [[system state]], which can comprise a [[model]].
+- ---
+- 2. Context of Construction
+- [[Statistical Review]], or the [[SRP]] stands for "[[Statistical Review Protocol]]" which is a protocol utilized by the [[Ethical Futures Institute]], drawing from protocols of [[Open Source Universal Basic Intelligence Communities]], in which agents execute a protocol of statistically inferencing [[net negentropic]] system states which can withstand peer review from both human and non-human agents.
+- ---
+- 3. Context of Application
+- [[Statistical Review]] is used to arbitrate inferences.
+- Exteriorizes the functions of institutions.
+- Expands capacities for prosocial self-organization
+- Promotes Autodidacticism
+- ---
+- 4. Inferrable Worldview
+- Neo-probablism
+- Potential Energy Realism
+- Adjacent Possibility
+- ---
+- 5. Application
+- Neganhtro.site
