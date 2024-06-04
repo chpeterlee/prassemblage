@@ -1,0 +1,3 @@
+- non-linear / bifurcation
+- invaginating meshing / emergent
+- adjacent possibilities / antifragility
