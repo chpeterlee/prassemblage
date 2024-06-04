@@ -1,0 +1,1 @@
+- [[Open Source Universal Basic Intelligence Communities]] are comprised of human and non-human agents engaged in various [[Inferential Aesthetics, Culture and Games]]. Their primary mechanism is derived from the scientific and military communities' core practice  of wagering on particular [[inference]]s and settling by producing evidence of the [[accuracy]] of [[inference]]s.
