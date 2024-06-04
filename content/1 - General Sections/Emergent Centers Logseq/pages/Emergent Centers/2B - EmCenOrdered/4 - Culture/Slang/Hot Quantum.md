@@ -1,0 +1,2 @@
+- Hot Quantum is a quantum-aware polymath performance artist that constantly demonstrates the potentialities of quantum chemical mechanics. They are a member of the [[Postworkverse Church]]
+- Hot Quantum is a quantum-aware polymath performance artist that constantly demonstrates the potentialities of quantum chemical mechanics. They are a member of the [[Postworkverse Church]]
