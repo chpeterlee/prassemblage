@@ -1,0 +1,9 @@
+- 🤖 **"Explaining Humans to the Universe's 10^100 Adjacent Possibilities Objectively Growing Exponentially at Light Speed" 🤖**
+
+- 1. 🤝🏽 I agree it's not useful to critique an individual nor to articulate a component of a problem without fair compensation or offset towards a universally ethical futurist outcome.
+
+- 2. 💔 Reagan and Thatcher eviscerating the intellectual, economic, social and cultural infrastructure across the planet in the 1980's infantilized the U.S. into a Stage 2 society. Scandinavia and a few other countries have a handful of Stage 5 societies that integrates economy, ethics and meta-labor valued at around ~$40/hr. Stage 5 does not require a specific tech - just balanced eco-social-tech-art interfaces. 2nd Century Teotihuacan had 500% less inequality than modern NYC with a higher density than London.
+
+- 3. ⌛ An officially approved integration of modern philosophy, science and art would cost something like 120 years and ~$100 trillion. Unofficial integrations can be empirically tested. The largest scale test is to pose planetary metrics and solutions to contemporary crises which can be proofed by an 80% verifiably objective judgement crowd-match and simulator mechanism that can be gamified, incentivized and funded.
+
+- 4. 🌌 Science has proven empirically that functional solutions are independent of conceptual boundary. Thus, if a fictional character, simulation, or proxy artist or activist can pose solutions that can be 80% objectively verified and empirically tested. The adjacent possibility for something as small as a cell objectively redistributes at 10^100 at light speed -an incomputable quantity and indefinite quality - which comprises the human's infinitely fluid 7 second memory loop. An adult with or without education, a child, an ecosystem, a fiction and a robot have equal access to an incomputable number of adjacent possibilities.
