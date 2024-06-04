@@ -1,0 +1,12 @@
+- The [[Intercity Planetary Inferencer Network]] system [[inference]]s various informational operations in a system comprised of humans collaborating with AI parameterized on the latest versions of [[Open Source Universal Basic Intelligence Communities]] [[SRP]] protocol valued against the [[INF]]'s [[Accurate Market]] matrice. It is [[inference]]d in with the 3. Superpositional Network & the Intercity Planetary.
+- [[inference]]rs
+  id:: c7f13882-3935-4d0f-b56a-2febc37453c1
+	- [[Ozan Atalan (ext)]]]]
+	- Hito Steyerl
+	- Aida Kahlender
+	- Al Klein
+	- Laura Heyman
+	- [[Patrick Sargent]]
+	- [[Manuel De Landa]]
+	- Stuart Kaufmann
+-
