@@ -1,0 +1,3 @@
+- Drink Water, chew, relax.
+- Salad, nuts, chicken, cheese, yogurt, soup.
+- Mom-salim, breathing, Earthing.
