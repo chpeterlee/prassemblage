@@ -1,0 +1,2 @@
+- A fact, in relation to probability, is an [[inference]] who's elements can be proven empirically or through simulation to have a high statistical consistency across many repetitive trials of the conditions circumscribed by the elements of the [[inference]].
+- As the elements of the [[inference]] transform, so do the statistical consistencies of the [[inference]] comprising the fact described.
