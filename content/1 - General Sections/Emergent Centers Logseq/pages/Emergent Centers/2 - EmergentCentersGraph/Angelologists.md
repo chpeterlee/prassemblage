@@ -1,0 +1,1 @@
+- Angelologists are mediators who communicate novel, [[net negentropic]] complexifications.
