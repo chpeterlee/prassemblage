@@ -1,0 +1,5 @@
+- proposition bets
+- economics
+- complexity science
+- [[Statistical Mechanics]]
+-   Crisis blankets - team UBI
