@@ -1,0 +1,6 @@
+- Media Artist & Theorist. Can use quantum data science and analytic design.
+- Chongha Peter Lee's artistic process is a singular process that draws from the intersection of behavioral anthropology, philostatistics and quantum data science.
+- Quite simply, he makes action painting polyptychs which are statistically accurate comparisons between any process, both artistic and non-artistic.
+- "An artwork in which the claim contextual to a function in comparison to another function, such as in behavioral anthropology or simulation or philostatistics, is the artwork:
+- [Function 1] is or is not more entropic comparative to [Function 2].
+- This can be mediated in a punk or rap song, or meme or artwork of any media." 2023
