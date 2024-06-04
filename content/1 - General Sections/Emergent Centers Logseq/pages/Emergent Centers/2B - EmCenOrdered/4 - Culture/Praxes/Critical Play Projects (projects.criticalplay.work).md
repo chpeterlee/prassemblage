@@ -1,0 +1,380 @@
+- This is also the home of **[[Planetary Research Assemblage]] Convos (prassemblage.site)**
+- Critical Play Calendar: (aka) [critical]()
+- For the text below, [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+- 0. Conversations Backlogs and Notes
+	- **Cesar & Peter - 1/17/2021 (every 2 weeks ish)**
+		- Painting & VR & Film
+		- Oculus quest 2
+		- Neos VR
+		- Unity
+			- https://www.youtube.com/watch?v=0CBC6PNeCo8
+			- From Me to Everyone:  03:15 PM
+			- http://gamep.site
+			- From Me to Everyone:  03:43 PM
+			- https://www.youtube.com/watch?v=C0dOin79Hm0&t=4445s
+		- 3d models in
+			- blender (pre-import)
+			- import in unity
+			- controllers & quest
+			- java & processing
+		- sci-fi & anime
+		- games
+		- narratives...?
+			- myths
+			- indigenous community to scare
+			- documented from - word of mouth
+				- video/audio
+			- books already written
+		- underground magazine
+			- abstract art
+			- documenters
+			- digital artist forum
+			- coder for XR - coder fishing
+		- Exhibition for adams Morgan
+			- projection
+			- business
+			- Pop Up events
+		- Amasia
+			- past and future -
+			- physical geography > identity
+			- Amasian Olympics
+			- Amasian Anthem
+				- Train AI on 7 disparate seconds
+		- Antigentrification efforts
+			- XR Graffiti / rating system (Projection & Chalk)
+		- Every couple weeks
+			- Coffee Break
+		- PRA Subgroup in Discord
+			- (private channels)
+			- (private Roam)
+			- (private calendar)
+	- **Daniel & Jon** (Mon-tue-wed Evening) 1-18-2021
+		- Handy Pro
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FODT1iTL_j-.png?alt=media&token=58acde99-01ec-4f63-b94e-1e5c638331e6)
+		- Notion/roam/pro
+		- Make Notion Templates More Beautiful
+		- Filter
+			- Ethical Futures Institute
+				- Formalize
+				- Forensic Architecture Group
+				- Humanized Antifa Networks / Press Networks
+				- Notion Templates for Search Criteria
+				- Open Source Intel Group (scattered)
+				- LInks Tools
+				- Tagging = 1 shot action for human
+				- No Code Tool Library
+					- No code:
+					  1. AI
+					  2. Automation
+					  3. XR (Neos)
+					  4. Crypto(edited)
+					- 5. Glyde Apps
+					  6. Zapier / Ifft / Imacros
+					  7. Nodered / max msp
+					  8. Miro / Roam / Notion / Discord
+					  9. Automated Nonlinear simulator from corona
+				- URL > Notion DATABASE VIEWS
+					- Tag system
+					- Blacklist / Whitelist
+					- Export to CSV > Mobile app
+				- XR Neos Control Room
+		- Prasssemblage.club
+		- (Peter Making fun of VR George Kuchar Style) https://youtu.be/zvexBeqtdK8
+		- Live jar of peanut butter zoom
+		- (24/7 Zoom)
+		- At some point he types (bear)
+			- sends emoji
+			- Chatroulette
+			- zoom president police
+			- Open Public Space
+			- Facial Expressions are important
+			- Hang out and __ignore__ each other and workout/dishes
+			- [[criticalplay.work]]
+			- Crypto (digital co-op)
+				- Relevantcommunity
+					- News App
+					- https://relevant.community/
+					- Earn for posting links?
+					- Bets for links
+					- separate the functions
+						- Crowdmatch Bets to Earn, also crowdmatch meet/view/comment (incentivize audience actions)
+						- Fragility Calculator / AF Calculator (Bots)
+						- Count Later
+						- Scrape good links > input into roam (ICP)
+						- make a clear CHASTE criteria based on endpoint to define quality of links
+				- crowd matching - Quadratic Funding
+					- https://wtfisqf.com/
+					- https://www.youtube.com/watch?v=3x1b_S6Qp2Q&ab_channel=LexFridman
+					- Cryptoscam
+						- Ethereum
+					- Truthcoin
+					- Intercrypto
+				- Simulators
+					- Peer Proof
+					- Assumptions in the model
+					- Nonlinearity
+						- Fragility
+							- If i drop a plate to the ground - the thing has a threshhold of integrity
+						- Robustness
+							- It is strong - different scale = can perform same function
+						- Antifragility
+							- https://fs.blog/2014/04/antifragile-a-definition/
+							- Resilience
+							- Growth through difference
+							- Complexification
+						- Possibility
+						- [[Pure Game (puregame.site)]]
+							- Game happens faster than you can act, speak or think
+						- Oliver Sacks
+							- Hallucinations
+								- https://www.amazon.com/Hallucinations-Oliver-Sacks/dp/0307947432
+							- humility, inquiry, research
+							- Making well people better
+							- Alot of psychological problems are not from chaos - it's from the repetitive action
+						- **Moving Forward!**
+						- Zoom social play and etc.
+							- Criticalplay.work
+							- “McKenzie WARK / WRITING METAGAMES
+								- https://publicseminar.org/2013/11/how-to-beat-writers-block/
+								- Make up your own rules! Combine rules from one or more game, in combination or sequence. Invent new ones. Play off the affordances of your environment or devices. But remember: process is all; intention is nothing; and product just is what it is."
+							- Evernote to Notion to Roam Process
+	- **Daniel & Peter : 1-20-2021**
+		- Daniel Convo
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FSIG6KciTLQ.png?alt=media&token=925dc9a4-5e35-4398-bec4-90aeaabff64b)
+		- Cool stuff http://radio.garden/
+		- Good music: https://www.mixcloud.com/bisradio/stream/
+		- Trumper needs graphic design
+		- Things to circle around:
+			- Bet boi's
+				- Phrase the number
+				- Fantasy Game: Supe up your simulator for Objective Good & Objectively Fragile (e-sport)
+			- Use the Notion for inputting image based counterfactuals (quines)
+				- Use peer deconstruction
+			- Future Tech:
+				- Dept. of Regional Antifragile Security Meshnet / Universal Basic Co-op Meshnets / Fragile Communities Forecast
+				- Ready Player One
+					- VR as integrator machine (like rubiks cube)
+				- chill twitch
+			- [[Game P]]
+				- {{embed  ((((7333730f-b383-45cd-9a3e-0a5813c4be52))))}}
+- 1. Project List
+	- Twitch Show
+	- Amasia Projects
+		- Amasian Symphony Orchestra
+			- Selma
+			- Dylan
+			- Terrible Little Things (local musician)
+			- Cesar
+			- Yara
+			- Thomas Stanley
+			- Matt Nolan
+			- Monk
+			- Edgar > Performing arts grant
+			- Massive Zoom room?
+	- 2. VR
+		- NeosVR
+	- 3. Project System
+		- CHASTE certification with peers
+			- Don + other simulator certified
+		- XR signs / bedsheet prints (huge & Cheap)/ bets
+			- EE & Amanda
+	- 4. Exhibition/press
+	- 5. Automation
+- This is also the home of **[[Planetary Research Assemblage]] Convos (prassemblage.site)**
+- Critical Play Calendar: (aka) [critical]()
+- For the text below, [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+- 0. Conversations Backlogs and Notes
+	- **Cesar & Peter - 1/17/2021 (every 2 weeks ish)**
+		- Painting & VR & Film
+		- Oculus quest 2
+		- Neos VR
+		- Unity
+			- https://www.youtube.com/watch?v=0CBC6PNeCo8
+			- From Me to Everyone:  03:15 PM
+			- http://gamep.site
+			- From Me to Everyone:  03:43 PM
+			- https://www.youtube.com/watch?v=C0dOin79Hm0&t=4445s
+		- 3d models in
+			- blender (pre-import)
+			- import in unity
+			- controllers & quest
+			- java & processing
+		- sci-fi & anime
+		- games
+		- narratives...?
+			- myths
+			- indigenous community to scare
+			- documented from - word of mouth
+				- video/audio
+			- books already written
+		- underground magazine
+			- abstract art
+			- documenters
+			- digital artist forum
+			- coder for XR - coder fishing
+		- Exhibition for adams Morgan
+			- projection
+			- business
+			- Pop Up events
+		- Amasia
+			- past and future -
+			- physical geography > identity
+			- Amasian Olympics
+			- Amasian Anthem
+				- Train AI on 7 disparate seconds
+		- Antigentrification efforts
+			- XR Graffiti / rating system (Projection & Chalk)
+		- Every couple weeks
+			- Coffee Break
+		- PRA Subgroup in Discord
+			- (private channels)
+			- (private Roam)
+			- (private calendar)
+	- **Daniel & Jon** (Mon-tue-wed Evening) 1-18-2021
+		- Handy Pro
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FODT1iTL_j-.png?alt=media&token=58acde99-01ec-4f63-b94e-1e5c638331e6)
+		- Notion/roam/pro
+		- Make Notion Templates More Beautiful
+		- Filter
+			- Ethical Futures Institute
+				- Formalize
+				- Forensic Architecture Group
+				- Humanized Antifa Networks / Press Networks
+				- Notion Templates for Search Criteria
+				- Open Source Intel Group (scattered)
+				- LInks Tools
+				- Tagging = 1 shot action for human
+				- No Code Tool Library
+					- No code:
+- 1. AI
+- 2. Automation
+- 3. XR (Neos)
+- 4. Crypto(edited)
+	- 5. Glyde Apps
+- 6. Zapier / Ifft / Imacros
+- 7. Nodered / max msp
+- 8. Miro / Roam / Notion / Discord
+- 9. Automated Nonlinear simulator from corona
+	- URL > Notion DATABASE VIEWS
+		- Tag system
+		- Blacklist / Whitelist
+		- Export to CSV > Mobile app
+	- XR Neos Control Room
+	- Prasssemblage.club
+	- (Peter Making fun of VR George Kuchar Style) https://youtu.be/zvexBeqtdK8
+	- Live jar of peanut butter zoom
+	- (24/7 Zoom)
+	- At some point he types (bear)
+		- sends emoji
+		- Chatroulette
+		- zoom president police
+		- Open Public Space
+		- Facial Expressions are important
+		- Hang out and __ignore__ each other and workout/dishes
+		- [[criticalplay.work]]
+		- Crypto (digital co-op)
+			- Relevantcommunity
+				- News App
+				- https://relevant.community/
+				- Earn for posting links?
+				- Bets for links
+				- separate the functions
+					- Crowdmatch Bets to Earn, also crowdmatch meet/view/comment (incentivize audience actions)
+					- Fragility Calculator / AF Calculator (Bots)
+					- Count Later
+					- Scrape good links > input into roam (ICP)
+					- make a clear CHASTE criteria based on endpoint to define quality of links
+			- crowd matching - Quadratic Funding
+				- https://wtfisqf.com/
+				- https://www.youtube.com/watch?v=3x1b_S6Qp2Q&ab_channel=LexFridman
+				- Cryptoscam
+					- Ethereum
+				- Truthcoin
+				- Intercrypto
+			- Simulators
+				- Peer Proof
+				- Assumptions in the model
+				- Nonlinearity
+					- Fragility
+						- If i drop a plate to the ground - the thing has a threshhold of integrity
+					- Robustness
+						- It is strong - different scale = can perform same function
+					- Antifragility
+						- https://fs.blog/2014/04/antifragile-a-definition/
+						- Resilience
+						- Growth through difference
+						- Complexification
+					- Possibility
+					- [[Pure Game (puregame.site)]]
+						- Game happens faster than you can act, speak or think
+					- Oliver Sacks
+						- Hallucinations
+							- https://www.amazon.com/Hallucinations-Oliver-Sacks/dp/0307947432
+						- humility, inquiry, research
+						- Making well people better
+						- Alot of psychological problems are not from chaos - it's from the repetitive action
+					- **Moving Forward!**
+					- Zoom social play and etc.
+						- Criticalplay.work
+						- “McKenzie WARK / WRITING METAGAMES
+							- https://publicseminar.org/2013/11/how-to-beat-writers-block/
+							- Make up your own rules! Combine rules from one or more game, in combination or sequence. Invent new ones. Play off the affordances of your environment or devices. But remember: process is all; intention is nothing; and product just is what it is."
+						- Evernote to Notion to Roam Process
+	- **Daniel & Peter : 1-20-2021**
+		- Daniel Convo
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FSIG6KciTLQ.png?alt=media&token=925dc9a4-5e35-4398-bec4-90aeaabff64b)
+		- Cool stuff http://radio.garden/
+		- Good music: https://www.mixcloud.com/bisradio/stream/
+		- Trumper needs graphic design
+		- Things to circle around:
+			- Bet boi's
+				- Phrase the number
+				- Fantasy Game: Supe up your simulator for Objective Good & Objectively Fragile (e-sport)
+			- Use the Notion for inputting image based counterfactuals (quines)
+				- Use peer deconstruction
+			- Future Tech:
+				- Dept. of Regional Antifragile Security Meshnet / Universal Basic Co-op Meshnets / Fragile Communities Forecast
+				- Ready Player One
+					- VR as integrator machine (like rubiks cube)
+				- chill twitch
+			- [[Game P]]
+				- #[[Game P]] block
+					- 1. [[Pure Game (puregame.site)]] (talk about it as we speak - orbiting the earth at 30 km/s)
+					- 2. Betboi Game (loose parameters - how do we construct a fantasy betting game?)
+					- 3. #AntifragileGame (design fiction + mckenzie wark rules + transclusion + quines + invagination)
+						- #DesignFiction
+							- https://people.well.com/conf/inkwell.vue/topics/510/State-of-the-World-2021-page01.html
+							- http://tbdcatalog.com/
+							- https://buttondown.email/designfiction/archive/the-algorithms-bird-box-moment/
+							- http://nearfuturelaboratory.com/
+						- “McKenzie WARK / WRITING METAGAMES
+							- https://publicseminar.org/2013/11/how-to-beat-writers-block/
+							- Make up your own rules! Combine rules from one or more game, in combination or sequence. Invent new ones. Play off the affordances of your environment or devices. But remember: process is all; intention is nothing; and product just is what it is."
+						- Speculative Realism :
+							- [Speculative Reality Games](https://roamresearch.com/#/app/IntercityPlanetary/page/PEQEHYv5z)
+							- {{pdf  https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FUaOw_7sRdC.pdf?alt=media&token=2436e568-a418-4426-ae1f-ca8aa019a7eb}}
+						- Quines : https://en.wikipedia.org/wiki/Quine_(computing)
+						- Invagination : https://www.youtube.com/watch?v=dXpAbezdOho
+- 1. Project List
+	- Twitch Show
+	- Amasia Projects
+		- Amasian Symphony Orchestra
+			- Selma
+			- Dylan
+			- Terrible Little Things (local musician)
+			- Cesar
+			- Yara
+			- Thomas Stanley
+			- Matt Nolan
+			- Monk
+			- Edgar > Performing arts grant
+			- Massive Zoom room?
+	- 2. VR
+		- NeosVR
+	- 3. Project System
+		- CHASTE certification with peers
+			- Don + other simulator certified
+		- XR signs / bedsheet prints (huge & Cheap)/ bets
+			- EE & Amanda
+	- 4. Exhibition/press
+	- 5. Automation
