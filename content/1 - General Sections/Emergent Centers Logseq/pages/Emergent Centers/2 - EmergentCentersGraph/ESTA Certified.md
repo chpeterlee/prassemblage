@@ -1,0 +1,2 @@
+- ESTA Certification refers to the [[Ethical Futures Institute]]'s certification of a system, physical or information, to be [[Inclusively Scaleable]] across ecological, social, technological and artistic domains. ESTA Certification can be given in parts and degrees.
+- ESTA Certification refers to the [[Ethical Futures Institute]]'s certification of a system, physical or information, to be [[Inclusively Scaleable]] across ecological, social, technological and artistic domains. ESTA Certification can be given in parts and degrees.
