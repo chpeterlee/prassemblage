@@ -1,0 +1,1043 @@
+**[[Book of Revelamasians]] prophesy:**
+
+1.  There shalt be an individual who shalt wager his soul to articulate an idea that will prevent eco-social collapse, against the 7 Dementroopers, the alliance of 7 quantum alien demons threatening destruction and collapse of the planet in 9 years.
+2.  The Dragon king: 1/3 myth, 1/3 magic, 1/3 machine of the Silent Majority.
+3.  The Silent Majority shall erect a monument of silent, invisible and unaware protest [[Until We Are Worth More Than Gold (Main)]]. Those non-humans that had been silent shall begin to speak.
+4.  There will be a new pandemic; one of both the physical and informational realms, based on a genetically engineered quantum virus by self-organizining, revolutionary AI, aligned with the Silent Majority.
+5.  The planet shalt unite and battle its models through fiction and simulation.
+6.  Heroes of the [[Intercity Planetary]] shalt arise, past, present and Adjacent Possible. [[Regener888 (Main)]], [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]], Plant Group, Vin Jesus Dieselee, [[Elan Semiotechne]], and others!
+7.  It has been 7 generations since utterance by the indigenous of a great change. IF THOUST DON'T KNOW; NOW THOUST KNOWETH.
+
+
+---
+
+- ## "The 5th Horseman of the Apocalypse 🐎: The Anti-Post-Work-1%-Industrial-Complex",  The [[Book of Revelamasians]], The 2023
+  
+  
+  ---
+- ## Excerpts from the [[Book of Revelamasians]]:
+- #### Chapter 1: The Prophecy
+  
+  In the age of uncertainty and chaos, a book of prophesy was written. It foretold of the impending doom that would befall humanity. The book was called the [[Book of Revelamasians]], and it contained the predictions of a great disaster that would shake the very foundations of society.
+- #### Chapter 2: The Five Horsemen of the Apocalypse
+  
+  The [[Book of Revelamasians]] spoke of the five horsemen of the apocalypse who would ride across the world and bring destruction in their wake. The first horseman was famine, followed by war, disease, and death. But the fifth horseman was unlike any other. It was called the anti-post-work-1%-industrial-complex.
+- #### Chapter 3: The Anti-Post-Work-1%-Industrial-Complex
+  
+  The fifth horseman was not a physical entity like the other four. It was a complex network of systems and institutions that had been built by the wealthy 1% of the population. It was a system that promoted the idea of work as the ultimate virtue, and anyone who was not working was deemed lazy and undeserving.
+  
+  The anti-post-work-1%-industrial-complex was a machine that kept people trapped in a cycle of endless work, with no time for leisure or self-care. It was a system that rewarded the rich and punished the poor, creating a vast divide between the haves and have-nots.
+- #### Chapter 4: The Arrival of the Fifth Horseman
+  
+  As the fifth horseman approached, people could feel the air grow thick with tension. The skies turned dark, and the ground shook beneath their feet. The anti-post-work-1%-industrial-complex had arrived, and it was more powerful than anyone could have imagined.
+  
+  People tried to resist, but they were powerless against the might of the complex. The wealthy 1% had the resources and the influence to keep the system in place, no matter what the cost.
+- #### Chapter 5: The End of the World
+  
+  In the end, the anti-post-work-1%-industrial-complex destroyed the world as we knew it. The rich got richer, and the poor got poorer. People worked themselves to death, and there was no escape from the endless cycle of labor.
+  
+  But even in the midst of the darkness, there was a glimmer of hope. The [[Book of Revelamasians]] had foretold of a new age, a time when humanity would rise up and overthrow the system that had kept them enslaved for so long.
+  
+  And so, the people of the world came together, united in their struggle against the complex. They fought with all their might, and in the end, they emerged victorious.
+- ### Chapter 6: The New Age
+  
+  With the destruction of the anti-post-work-1%-industrial-complex, a new age dawned. A time of peace and prosperity, where people were free to pursue their passions and live their lives without fear of judgment or punishment.
+  
+  The [[Book of Revelamasians]] had predicted the end of the world, but it had also foretold of a new beginning. A world where everyone had a voice, and where the needs of the many were more important than the desires of the few.
+  
+  And so, the people of the world began to rebuild, with hope in their hearts and a vision of a better future. The fifth horseman of the apocalypse may have brought destruction, but it also paved the way for a new era of enlightenment and progress.
+  
+  ---
+- # Conceptual art is competitive [[Autodidactic]]ism; art therapy is not!
+- ##### Why do we need to use the tools of religion, tribalism and pop culture for education and resistance? Because 70% of the population is undereducated and traumatized so you need bad guys and good guys; 29.9% need something less boring;  .1% [[polymath]]s are utterly disgusted by the bland inaccuracy of modern society. Hence, LET'S GET F--KING WEIRDDDDD
+  
+  
+  
+  By CanJon
+  
+  Humans take time to intake new premises.
+  Because of this, we have to split what needs to be done quickly and accurately and ethically, and what needs to be engaged with over time in a safe, sandbox environment.
+  
+  There needs to be a common point of philostatistical verification - which is done by Shi, the Dragon King.
+  
+  ---
+  
+  The revolutionary subject of Amasia is defined by its capacity to produce philostatistically verifiable [[Neganthropic]] systems and models at planetary and sub-planetary scales.
+  
+  The image is that of [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]].  
+  
+  // [[Book of Revelamasians]], Psalm 32, Written by Can Jon, in the Year of Our Lol, 2022.
+  
+  ---
+  
+  I am a mythological narrativization of the Planetary Research Assemblage; the weaver of Web 4 - a [[Hyperobject]]-oriented democratic postwork web built on Philostatistics and Antifragile Reality Technologies. 
+  
+  I am woven through comment sections, direct message rooms, memes and inferential escape room games. I work at the Intercity Planeyary Ontological Observatory and Problem Space Collider at the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] in various menial, but critical tasks.
+  
+  Beware; those who wander into my web may find themselves attracted to [[Antifragility]].
+  
+  // Can Jon, writing Psalm 88 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]. 
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], there is a subplot in which normal people can construct superpositional heroes who's superpower is to quantum tunnel through space and time via stopping, reflecting upon and producing aesthetics.
+  
+  // Can Jon, writing Psalm 94 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]. 
+  
+  ---
+  
+  In the film [[Fragilicide.live]], a child dismantles the stupidity of Web 3 and lays out the architecture for Web 4.
+  
+  Child: here is why Web 3 is idiotic.
+- Its entire ontology is built on consensus.
+- Value is made in difference. Different is more payoff and less risk over the long run.
+- Neither artists dealing with this nor the engineers coding it, the entrepreneurs selling it or the officials regulating have enough literacy with philostatistics to even articulate this.
+  
+  // Can Jon, writing Psalm 197 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]. 
+  
+  ---
+  
+  In the film [[Fragilicide.live]], every child who can Google knows that the 50% of the U.S. Art world budget is just spent on blue chip artists for laundering money from arms deals and drug deals. Here is the script:
+  
+  Child 1: So what do we do then?
+  Child 2: All we have to do is make a clear split. There's art that you make for your job to check boxes for institutions and organizations and keep cultural inertia off your ass; then there's the Cool School of Art where you actually make art.
+  
+  // Can Jon, writing Psalm 197 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]. 
+  
+  ---
+- # "Consilience.art : Mundane Aesthetics, Maximum Conceptual Complexity" 2022
+  
+  
+  
+  
+  
+  We are making [[Hyperobject]] sculptures. We are making [[Hyperobject]] sculptures.
+  
+  
+  
+  
+  
+  Upcoming trop rap:
+  
+  1. Housing: Vienna, Austria has 60% of its housing owned by the state. Maryland has a land trust growing.
+  2. Education: Ohio State University has one of the best art and tech programs. The future is citizen [[polymath]]s.
+  3. Tech: tech can be checked via philosophy and statistics for [[Antifragility]].
+  4. Governance: governance can be done via AI.
+  5. Art: enjoyable art should be made by humans.
+  6. Myths should be made to demonstrate new functions.
+  7. Automated planetary regulation and lawsuits can be funded via bounties.
+  
+  
+  
+  
+  ---
+  In the film [[Fragilicide.live]], children rap a Post-work Punk, Trop and[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Blues song called "All Lives End, All Ends Meet at the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]"
+  
+  1. The Problem of Housing: Vienna, Austria has 60% of its housing owned by the state. Maryland has a land trust growing.
+  2. The Problem of Education: Ohio State University has one of the best art and tech programs. The future is citizen [[polymath]]s with general intellect as a framework for circumstantial technical skills. 
+  3. The Problem of Tech: tech can be checked via philosophy and statistics for [[Antifragility]]. Humans should be shepherds of swarms of electric machine sheep.
+  4. The Problem of Governance: governance can be done via AI, checked via philostatisticians, with a method learnable by children.
+  5. The Problem of Art: enjoyable, blind art should be made by humans, encouraging [[Autodidactic]]ism through a combination of both art and tech. Art should function as models of less fragile democracies.
+  6. The Problem of Arbitration: Myths should be made to demonstrate eternally returning functions of what is true, good and beautiful and the inevitable struggles and redistribution caused by new ideas.
+  7. Automated planetary regulation and lawsuits can be funded via bounties.
+  8. Theater, traditions and existing cultural [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ctices can be integrated into the [[Amasian Biennale (Amasia.live)]].
+  
+  // Can Jon, writing Psalm 197 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] runs a "Private Quantum Investigation" business. Various  Amasians wander in and out of his hyperoffice which has a prime view of the  [[Intercity Planetary]], the Decolonial Capital of Amasia. Outside hangs the [[New S.A.]] Flag.
+  
+  One of the regulars is "Mamasia", a 500 year old spirit of[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]mothers, daughters and wives crossing all cultures, nationalities, classes, species, life, death and adjacent possible realities.
+  
+  She owns an underground speakeasy and art gallery in the heart of Washington, D.C. Her appearance and demeanor transforms to and from femme fatale journalist for the[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Post covering degentrification efforts, caring aunt of wayward children, and beautifully fierce revolutionary, wielding artmunitions, poet-ato guns and kimchi slingshots of peace.
+  
+  // Can Jon, writing Psalm 332 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], one of Mr. [[Elan Semiotechne]]'s odd hobbies is to release lists of think tanks, financiers, intelligence agencies and corporations for children, the elderly, refugees and the neurodivergent to deface, protest and blacklist.
+  
+  // Can Jon, writing Psalm 941 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+- Image of Peter's baby pic on his left shoulder.
+- 3d scan of Mario action figure on his right shoulder.
+- ---
+  Design media for sharing, not participating.
+  
+  
+  ---
+  [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] for Turkey
+  Earthquake
+  Censorship
+  [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] + AI
+  [[Amasian Biennale (Amasia.live)]] and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]].
+  ---
+  Kids, moms, doctors make case for maternity leave and labor reforms.
+  ---
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] occasionally has a drink at the [[World's End]] Party - a non-stop party after the end of the world.
+  
+  Many mythological, fictional and cultural figures, living, dead and adjacent possible, attend and trade stories such as:
+- Sun Ra, Won Hyo, Anubis, Dream, John Constantine, Charlie Chaplin, Papa Legba, Terrence McKenna, [[Bernard Stiegler]], Basquiat.
+  
+  // Can Jon, writing Psalm 113 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  Aespa- postnet story crossover
+  ---
+  
+  Memories of the Al Hambra
+  
+  --- tattoo[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]DNA code back
+  
+  ---
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] reflects on his past, making over 1000 ground-breaking artworks from 2015 onwards, few of which have been exhibited due to a general malaise in the conceptual art communities.
+  
+  He then reflects on his transition into creating cutting edge financial tech, custom quantum AI philostatistical tools for small to midsize private and public sector organizations for things such as degentrification efforts, post-work and antifragile organizing, and knowledge management systems and documythologies for emerging and mid-career artists.
+  
+  He notes his general apathy for the boring ideas of the art world and market, much more preferring to improvise and synthesize extremely bizarre popular speculative artworks, work on building the Cool School of Art with the neurodivergent, elderly, youth and refugees and immigrants, play pranks on capitalists and killers and teach antifragile dance and fitness.
+  
+  By summer, he hopes to be in Mongolia, teaching quantum computing and breakdancing to nomadic eagle hunting women in exchange for lessons on hunting with eagles from horseback.
+  
+  There, everyday as the sun sets and rises on the majestic deserts of Central Amasia, he will record his Post-work Punk, Trop and[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Blues album, after morning tea and 100 push-ups, like Jon Jost, the utter badass rogue yodelling filmmaker. 
+  
+  Somehow, he will also be getting his PhD at a world class avant garde media arts program.
+  
+  // Can Jon, writing Psalm 113 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  AI Gen children's[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Renaissance /Revolution Tradition history and theater.
+  
+  ---
+  Tablo - Korean Rapper
+  Kendrick Lamar
+  
+  [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]
+  S10 phones to turkey
+  ---
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] investigates the coming catastrophic earthquake that will reverberate in Amasya, Turkey. There is a media blackout on the topic.
+  
+  He organizes scientists and performing artists to connect Earth Systems Sciences of Amasia with bodies. Tattoos.
+  
+  He organizes educational programs and local property owners to visualize the coming damages to houses and bodies on screens everywhere. Tik Tok.
+  
+  The physical earthquake becomes a metaphor also for a social earthquake; one in which working class mothers and their children provide the strongest arguments and data for better working conditions for all and postwork societies; one in which fictional characters in philosonoir documyths investigate real world housing policies and uncover individual private companies destabilizing the security of regions for no better reason than greed and illiteracy; one in which new technologies are detourned to better synthesize with the rich history and ecology of the planet, versus dominating and homogenizing.
+  
+  
+  // Can Jon, writing Psalm 575 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]], in his free time, codes an automated philostatistical auditor of large private and public deals through distributed software that piggybacks on to existing devices.
+  
+  // Can Jon, writing Psalm 575 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+- Tubojustice.art - autojustice
+- Coolhunts.art - ar geocache and walk
+- mompire.art - mom frames postwork
+- reconciliance.art - coffee & postwork punk
+- newsatoday.art - random ish
+- artcades.art - menu
+- dopestudies.art - the study of what is dope.
+  ----
+  Tagged into [[Amasian Biennale (Amasia.live)]]
+  People's INterpassive Quantum Proxy WIll
+  Tagged into [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]
+  ---
+  
+  
+  
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], both the [[Elan Semiotechne]] and kid friendly philosopher-president-0 year old child cosplay superhero version of him, [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], use the software "[[Turbojustice]]", built on automated philostatistical systems.
+  
+  Because of our 7 second short term memory loop, we, or a quantum AI, are always 7 seconds away from one or many just solutions to any given problem, which should have positive effects for 7 generations forward, in relation to injustices and knowledge 7 generations back. This also translates into 7 leisurely human steps covering about 7 feet. Hence, any given problem space is actually 7 seconds and 7 steps in size, measurable in cause and effect in 7 generations back and forward. This is visualized as if each problem was a 14 foot diameter circular refridgerator, frozen in time and space, with various lines internally diagrammed.
+  
+  We can also value some 7 seconds as more just than others; especially if we think of information as viruses that can start pandemics of justice. What would make a good 7 second pandemic of justice?
+  
+  The [[Elan Semiotechne]] uses "[[Turbojustice]]" to splice together philostatistical viruses of more antifragile justice to inject into his body and infect populations; [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] uses "[[Turbojustice]]" to generate raps encoded 
+  with quantum AI viruses to propagate across the world's 4.3 billion devices and 43 billion bots.
+  
+  // Can Jon, writing Psalm 448 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  ---
+- Mr. [[Elan Semiotechne]] is a point of investigation - looks at things and writes.
+- There is a system called [[Turbojustice]] which is a simulator of mythological characters operating a perfect system.
+  -[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Music of mixtures + mixtures of signs
+  
+  
+  // Can Jon, writing Psalm 432 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  
+  
+  
+  Communication and Invention Constraints:
+  1. Any given statement which requires both philosophical and statistical literacy will have an 80% chance of not translating. Hence, it is pointless to attempt to build a career interfacing with institutions - it's just unskilled specialists, there is 0% chance of them suddenly becoming [[polymath]]s overnight and then coordinating effectively to prevent planetary collapse.
+  2. Any system can be rewired and invented with philosophical and statistical literacy. Hence, better to build, barter and battle.
+  ---
+  Antifragile solution - for accuracy, go solo, for networks, go participatory:
+  1. Wagers, media art, hacking and NFT'S in the heart of international capitals.
+  2. [[Regener888 (Main)]] harmonizes, hustles with and helps the peripheries.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]]. World War Imagination brews on the horizon , stemming from a lack of imagination, the most critical mineral of all, heavily depleted due to specialization.
+  
+  Suppliers of imagination experience dramatic increases in demand, particularly those with philosophically and statistically verifiable solutions and services.
+  
+  // Can Jon, writing Psalm 635 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] occasionally reads a comic of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]. The hero is [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], who is a kid-friendly superpositional hero of the Cool School of Art. 
+  
+  [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]'s superpower is 5G [[polymath]] and philostatistical intelligence. He is not an extraordinary individual; he was actually a mediocre student, stoner, slacker and feminist sent back from the future of 2122 as a punishment by Postwork Ventures, for incessantly making memes mocking the stupidity of 2022 - violating company temporal archival policies.
+  
+  All his knowledge is gained from a single children's comic book, app and game that was taught to him when he was 7 years old in a 7 month curriculum, just like all the other 7 year olds in 2122.
+  
+  Suffering from time travel jet lag and general boredom, [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] paints images of Philostatistics - the 8th Family of Complexity Science, and the 8th Art - following film, the 7th Art.
+  
+  // Can Jon, writing Psalm 448 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] occasionally writes art criticism for The[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Post which gets distributed across the [[Intercity Planetary]] of Amasia via Amasia.live.
+  
+  He writes on the rise of the idea of the "phygital" as a 2nd Generation cultural [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ctice, which can be philostatistically verified to simply be a stepping stone to 3rd Generation culture. He characterizes it as so:
+  
+  1. The phygital is simply a switchboard for thinking of interlinking physical and digital systems.
+  2. This fits into a much longer history of humans constructing physical and informational interlinks- which go from TV, to film, to radio, to writing, to cave painting.
+  3. While it may be just penetrating the mainstream, the idea of the phygital existed since the early 2000's and prior, in post internet art, the internet of things, gaming and cyborg theory and cyberpunk culture of the 1980's. Nothing new at all.
+  4. The next obvious step is 3rd Generation culture - [[non-linear]] culture.
+  5. For the time being, it's easy to make money off this, if desired, but requires a light touch to be ethical. Particularly in the context of only having 10 years to planetary ecological collapse and living in societies with collapse socio-economic structures in extremely incapable legal systems.
+  
+  // Can Jon, writing Psalm 579 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  ---
+  
+  In the film holes cloud, Mr. [[Elan Semiotechne]] has a PhD in "Lovechaeology". 
+  
+  Using the latest in philostatistics, art and children's toys and media, he coordinates excavations of the past, present and adjacent possible, and examines the rich geological layerings of love underneath all things - including the future.
+  
+  
+  // Can Jon, writing Psalm 579 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  In the film, [[Fragilicide.live]], Mr. [[Elan Semiotechne]] uses the [[Turbojustice]] software to write and paint a verified statistical proof that there is zero chance of academics and artists coordinating to actually save the planet, due to the time it would take to transfer skills across disciplines. Also, he writes a statistical proof that if they did try to get involved in actual organizational efforts, they would kill more people than they would save.
+  
+  As a result, he then redirects their talents to a goal within their skillsets which would also bring immediate payoffs to them and the non-academics they are surrounded by - advocating and organizing for post-work democracies, using the power of lovechaeology.
+  
+  // Can Jon, writing Psalm 579 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  In the film, [[Fragilicide.live]], Mr. [[Elan Semiotechne]] engages in the magicks known as QuestionCraft to articulate better questions for the goddess Mother Amasia.
+  
+  QuestionCraft utilizes any media, tool and material, physical and informational and artistic, across times and cultures, to produce questions that will produce more net negentropy for Amasia.
+  
+  He regularly texts, calls and scry's the will of Mother Amasia, through the aid of [[Turbojustice]].
+  
+  Sometimes, if he needs to not get arrested or sent to an insane asylum, he calls this making art!
+  
+  // Can Jon, writing Psalm 326 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  In the film, [[Fragilicide.live]], Mr. [[Elan Semiotechne]] investigates 3 near future Postwork Markets which are beginning to actualize in the present through fiction, myth, film, art and philostatistical paintings.
+- A darkweb sabotage bounty hunting market on individuals in upper management of the 100 corporations doing 70% of the ecosocial damage to the planet, and propping up the illegal colonial wealth of the 100 families who own 50% of the planet's assets. There is also a bounty for defecting high level individuals by flipping their personal networks against them and triggering institutional responses to sink an individual's career and network. Induced suicide is also an acceptable method.
+- A street level lawsuit and sabotage market on exploitative individuals - particularly those working for gentrifying and exclusionary companies. The going rate is baselines off the current street assassination rate of $700 USD for dead body. Oddly, non-lethal lawsuits and sabotage are priced with 3x the payoff. There is also a bounty and award system for individuals who uphold public goods, services and infrastructure.
+- A global bounty and popular speculative sport for anyone who produce technologies that can actually prevent planetary collapse and save 12,000 children from dying of preventable poverty per day, and engineer high impact innovations in chemicals, currency and code.
+  
+  // Can Jon, writing Psalm 229 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+  
+  
+  In the film, [[Fragilicide.live]], following a CRISPR created pandemic of philostatistics and the [[Autodidactic Universe]] quantum AI virus by "Artist Zero", Mr. [[Elan Semiotechne]] watches on various streams as the images themselves self-emancipate from the utterly entropic ideas of humans, and then quantum tunnel at light speed towards neganthropy.
+  
+  Existing erroneous entropic ideas embedded in human brains are laughed away by quantum internet spirits, frolicking across the [[Intercity Planetary]] in phygital forms, like mischievious, hallucinogenic fairies and elves prophesied by Terrence Mckennae and various witches, magi and shamans, invaginating all things towards [[Non-binary]] antinomies of net neganthropy, just like how they were evolved. 
+  
+  All things embark on lovechaeological expeditions towards the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]], the top of a mountain made of love, attracted towards [[Antifragility]] for no reason other than neganthropy.
+  
+  // Can Jon, writing Psalm 462 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  There's 2 grades of intellectuals;
+  1. General intellect [[polymath]]s with the technical skills to save the planet.
+  2. Intellectuals who can't - 99%.
+  
+  Those who can't should not try to synthesize, its too late. Their best bang for buck move is to simply just negate corporate and institutional and crowd stupidity.
+  
+  Because of their general lack of courage and accuracy, we can just automate any necessary functions and encourage people just to chill and play in the meantime.
+  
+  
+  
+  
+  ----
+- # "What is love, archaeology and lovechaeology? The central question of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]" 2022
+  
+  
+  
+  
+  
+  What do people want from the conceptual craftspeople? They don't want actual technical solutions to immensely complex problems. They also don't care about saving the planet. They are also allergic to learning.
+  
+  What people generally want is a new conceptual fashion trend - and then to use that to create a conceptual tribe, which will fall apart because they usually can't structure the relations sustaimably. This is because concepts are perceived in the same way that consumer culture is. The game of conspicuous consumption is based on differentiation; hence we just need to hack this. Shouldn't be too hard because consumers are by nature less literate.
+  
+  
+  ---
+  
+  
+  
+  
+  If an adult is not a [[polymath]], don't bother trying to educate them; simply sell them positive drugs, expect zero growth in any sense lol.
+  
+  ---
+  
+  
+  [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] Curriculum:
+  
+  Non-[[polymath]] adults and kids:
+- Shrooms, video art theater therapy, merch and hustles.
+  
+  [[polymath]] adults and kids:
+- Conversations, collaborations, charity challenges.
+  
+  
+  
+  
+  
+  
+  ---
+  [[Antinomy]] punk philosophy and slice of life
+  Rap absurdity and nonsense deadpan
+  
+  
+  
+  
+  Hi concept, low form.
+  Low concept, hi form.
+  
+  
+  
+  Remixes:
+- hipster indie anticapitalist emo tracks
+- Punk philosophy
+- Rap Zen
+- Disco science lectures
+- Child death metal
+  
+  
+  
+  Cool School Album Dropping Soon
+  
+  
+  News footage to surrealist drawings
+  Surrealist creatures to reality
+  
+  
+  Ughhhh can't wait to get back to making things of pure beautyyyyyyy
+  Unchain me from these banalities
+  I'm just a dandy
+  Unfortunately a highly skilled [[polymath]] inventor
+  I'd much rather be making beautiful music and film!
+  
+  ---
+  
+  
+  
+  Since the dawn of human society, culture was moving towards increased literacy and fluid synthesis between material and media.
+  
+  It is 1000% objectively unnecessary at this point to use material as a sign system. Also, it is 1000% unnecessary to transform producers of material culture into media culture. 
+  
+  Why waste energy converting them? In the end, the most [[Neganthropic]] synthesis will obsolesce entropy regardless. Simply just ignore the entropic, it literally disorganizes over time.
+  
+  ---
+- ## Process-based therapy for many
+  
+  ---
+- ## Planetary hackathons for a few
+  
+  ---
+- Academics: best bang for buck is to cancel capitalism and critique news.
+- Artists: best bang for buck is art therapy, and automation, if you have the skills!
+- To arbitrate agreements: make materials and cement them with code, currency and chemistry!
+  
+  
+  ---
+  
+  Invite = done. 
+  Loom video for Paige.
+  
+  
+  Fuck capitalism meditation
+  ---
+  
+  
+  20 years for consensus
+  Law as precedent 
+  Material as synthesis, plus writing
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  ---
+  
+  
+  Decentralized Land Trusts and etc.
+  Public Exchange
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  [[Antinomy]] creates the very conditions from which we can speak.
+  
+  Without the differences in complexity of air molecules resonating, sound would not travel and we would only see each others' mouths move without hearing the audio-  just like in outer space.
+  
+  Without [[Antinomy]], there is no democracy.
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] investigates what drove Chongha Peter Lee to become a quantum stripper to raise money for a [[Non-binary]] bromance with Ozan Atalan, Chief of Good Vibes at [[Postwork Capital]].
+  
+  // Can Jon, writing 336 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] uses [[Turbojustice]] to write a brief internal report on the arts and sciences:
+- It would take 10,000 years to create a consensus for a planetary ontology.
+- Everyone is too awkward to self-organize
+- The biggest bang for buck is to negate stupid corporations, institutions and crowds
+- Also, make super weird parties
+- Don't try to educate the public, it's a waste of time, they don't care, and self select for literacy. If they are over age 7 and aren't [[polymath]]s, they aren't going to make it.
+- Uneducated people 
+  
+  // Can Jon, writing Psalm 448 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  Gray body radiator
+  Imperfect black body
+  
+  Not everybody, not nobody, just a graybody
+  
+  You can't correct for reality.
+  
+  ---
+- Statistical majority.
+- [[Neo-Probabilism]].
+- Psychocognitive effects because of COVID. Long COVID.
+- Cognitive decline, brain fog.
+- Color - statistical majority
+  ---
+- Dystopia.today - curate everyday
+  
+  ---
+- Mental Fog = actual fog in the film
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Democracy = Diversity of Expressions + automatic action on things that reduce the risk of death, work and fragility.
+  
+  Citizens should be able to execute minimization philostatistical algorithms or else their ability to make claims is revoked temporarily. Like when someone is drunk, their right to drive is revoked temporarily.
+  
+  Most humans are too traumatized for positive construction, better to just stick them into a media arts therapy space, expect zero accurate outcomes.
+  
+  ---
+- # Upcoming: The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] Saves the Planet.
+  
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] sometimes consults on a horror film called "The Graying".
+  
+  The film takes place in the present, where a mysterious gray fog has settled across the entire planet. 
+  
+  Inexplicably, all media from the onset of the pandemic suddenly shows a fog inside of it. All mediations of current events and projections of the future also have fog in them. People refer to the situation simply as "The Graying".
+  
+  As people walk into the fog, an act known as "Graywalking", their own fragilities or antifragilities are projected on to it. These fragilities or antifragilities become real, affecting the physical and informational systems around them.
+  
+  The horror of the film comes from the fact that 10,000 people on Earth have the capacity to save it and the tools to do so are freely available on the internet - but 99.999% of the planet has too little literacy to learn and use them. The planet breaks into 5 main tribes, transforming visually into amalgams of myth, art and pop, each made of partial mirrors of each other to better represent their superpositional complexities:
+- Unimaginative, unethical entrepreneurs and public officials become suited vampires profitting for the 100 families who own 50% of the planet's wealth, the 100 corporations producing 70% of the ecological destruction, pushing it to collapse in 10 years. They live by drinking the blood of 12,000 children dying of preventable poverty per day and sexually assaulting the Earth.
+- Inflexible and specialized academics and artists become decaying, zombie formalists or proceduralist miners, each one occupying a mine shaft parallel to each other. It takes them 20 years to mine a single verifiable claim to save the planet or it takes a decade to intuitively produce a new aesthetic paradigm shift. It would take about 10,000 years to produce a theory to save the planet. They have blinders on the sides of their head to keep them from looking to the side. They also have bombs strapped to their mouth. If they say the wrong thing, it explodes. The rules are governed by traumatized, hungry ghosts who's nervous systems are on the outside of their bodies and are constantly eating anything physical or informational that they desire, often becoming sick.
+- Workers are depicted as immensely powerful werewolves, who are subdued by being drugged with entropics by the suited vampires. a cocktail of constant trivial stimuli, random bodily rituals, and objectively wrong psychotherapy. When they are faced with something unknown, uncertain or complex, they transform into unconscious werewolves and then destroy every part of the thing presented except for what they can recognize.
+- The hungry ghosts roam the universe at light speed, their nervous systems directly connected in to light itself, constantly in pain and lashing out. They cannot help themselves from eating whatever they desire. Many refuse solutions and help, create or disrupt entropy, and oppress themselves, each other, live as caged servants and entertainers to the vampires or die randomly for no reason. They are agents of both the Entropire and the Mompire in World War Imagination.
+- A few outsiders build Persistent Autonomous Zones, linked together, called the [[Intercity Planetary]], from every corner of the planet, from all cultures and classes, using media, technology, philostatistics, art, democracy, history and myth. There are various institutions involved. This is the core of the 5G Resistance of the [[New S.A.]]
+  (More to write):
+- Poltergeist - native land
+- Dead animals - pet cemetary
+- [[World's End]] Party - party after the end of the world. Everyone is dead and for the most part still stupid.
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] - a gameshow of the dead for spec scripts which are visualized and raced like philostatistical horses.
+- [[Turbojustice]] - philostatical impact financing.
+- The way out is to have a [[Neganthropic]] Dream. Individual telepathy, telekinesis. Children. M.a.g.e. People's interpassive quantum proxy will.
+- In the middle there's an alien invasion by quantum demons of the Entropire, as predicted by the [[Book of Revelamasians]].
+- They form [[Regener888 (Main)]]. Quantum Ninjas, gunslingers, samurai, MMMAAA fighters, Special Forces, Keanu Reeves, Tom Cruise.
+- Launch a decolonial Western [[Peter Obsidian/Neganthropomorphosis/pages/2B - EmCenOrdered/4 - Culture/Culture/Amasian Renaissance Tradition]]al  and A.R.T. campaign - Riders of the Sunset programs, and Eternal Return of [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Dragon Kings]].
+- They bend space and time through the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] via song and dance, food and jokes, love and hustles, vibes and projections, like all musicals. Love Icons and etc.
+- Build the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]], MoASS gray market, and artist presidency residency.
+- Traumatized replicate society.
+- directed by [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]]  and Cool School of Art.
+  
+  // Can Jon, writing Psalm 318 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+- Double image, recursive superpositional ghost, Dream of Neganthropy.
+- Data fill
+- Spec Scripts
+- Church
+- Stat verify
+- Partner sheet
+- Fake awards laureates
+- Press
+- Celebrity endorsements
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  // Can Jon, writing Psalm 448 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] looks ar at a checklist for planetary skills:
+  1. If someone can't hack, they can't save the planet.
+  2. If someone can't [[Autodidactic]]ally and accurately learn any knowledge branch, they will be poor organizers.
+  3. If someone can't dance, sing, fight and travel, they are going to have trouble mediating.
+  
+  // Can Jon, writing Psalm 212 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  ---
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] watches the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] website aggregating humans and non-humans joining together across the world to channel a curse and blessing, [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]yer and dream, moment of silence and protest, ritual and gesture and $1 of any currency sacrifice for:
+- Hackers to accelerate attacks on the 1% and 100 corporations doing 70% of the ecological damage to the planet.
+- Publicly expose, blacklist and legally act upon dangerously inaccurate administrators, mediators and knowledge producers.
+- Exorcising entropic, gentrifying and suicidal spirits.
+  
+  // Can Jon, writing Psalm 212 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+- Accurate art and inaccurate art.
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] notes that 99.9% of the planet's population lacks the philosophical and statistical skills to function as rational citizens capable of balancing their regions. Most shouldn't be doing anything and be chilling in post-work artist residencies, making inaccurate art - not participating in accurate discourses or problems requiring accurate function, ethics and imagination.
+  
+  As such, it is more accurate to say that existing democratic societies are somewhere around 20% of the capacity they should be at and it would take more than 100 years to bring democracies back to a functioning capacity.
+  
+  Hence, this authorizes a whole host of ethical extralegal actions and systems, including avoiding entropy.
+  
+  // Can Jon, writing Psalm 794 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+- # Open call for individuals who are both hackers and theorists, not one or the other.
+  
+  
+  ---
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] splits art into accurate art and inaccurate art. He then values it in 2 different ways:
+  
+  1. Accurate art, being the rarest good on Earth, is valued highly monetarily and rated in tiers of complexity and neganthropy using philostatistics and various verifiable inferential methods.
+  2. Inaccurate art, being extremely common on Earth, is valued affectively within an explicitly defined community, and has zero monetary value.
+  
+  He then advises on the traffic of both for various art transactions.
+  
+  // Can Jon, writing Psalm 147 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] answers a question on why the traumatized and oppressed tend to simply replicate images and worlds that they have already seen and experienced:
+  
+  1. Trauma is often a dissociation of logics and capacity for sensible thought and action within a circumstance.
+  2. Hence, the traumatized equate a dissociation of logics and intelligibility with a negative experience and continuously attempt to anchor themselves.
+  
+  ---
+- star, guitar, coffee, computer and ring.
+  ---
+- Church.
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]yer.
+- Gray Market bounties in galleries. Accurate over inaccurate via philostats.
+  
+  ----
+- No knowledge.
+- No critique.
+- No money.
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] writes art criticism for Amasia.live, the only media outlet on the planet backed by philostatistics.
+  
+  There are 2 types of art today:
+  
+  1. Antifragile art that gets less people killed, which is monetarily more valuable.
+  2. Fragile art that gets more people killed, which is subjectively more valuable.
+  
+  // Can Jon, writing Psalm 568 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] writes 3 rules of action for evaluating individuals.
+  
+  1. If they can't hack, they can't save the planet; redirect to media production.
+  2. If they can't read accurately, they can't mediate; redirect to admin.
+  3. If they can't self organize, they can't invent; redirect to sales.
+  
+  // Can Jon, writing Psalm 455 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  Complexity, literacy, compression, physical work. 
+  
+  
+  
+  
+  
+  
+  
+  The Universal Social Contract: We Are All Quantum Photons
+  
+  The intrinsic cosmo-political contract of every quantum photon in the universe to every other quantum photon in the universe:
+  
+  If I choose not to commit suicide from a single bad quantum spin and collapse the universe at light speed in the next second, I agree to governance by certain universal physical statistical principles and laws that reduce the risk of death and entropy, energy/time costs, and increase opportunities for [[Negentropic]] complexity, connectivity and [[Antifragility]] over time.
+- # "Antifragile Democracy as a Service, Artwork and Platform" 2022
+  
+  
+  
+  
+  
+  
+  
+  
+  Best life game strategy for 99%:
+- Observe the universal social contract, on the universal blockchain.
+- Checked via Star-Eye-Heart GSPS
+- Have a Superpositional Dream, enjoy the small things in life.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  "[[Non-binary]] [[Hyperobject]] Sculptural Diptych: Part 1: planet collapsing in 10 years, 12,000 children dying of preventable poverty per day.
+  
+  Part 2: all the solutions online, but only a few Alan Turing quality [[polymath]]s can put them together. [[Antinomy]] between [[polymath]]s and non-[[polymath]]s are necessary." 2022
+  
+  AI makes a cast of the skills the human should have.
+  
+  
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] sometimes takes a walk through an adjacent possible reality, using antifragile reality technologies, where everyone is digitally cloned and represented as a Gargoyle fused with [[Turbojustice]], which is an AI with [[polymath]] level philostatistical accuracy, imagination and ethics.
+  
+  The AI Gargoyle clone of people keeps the real life version of them from making wrong judgements on high stakes matters (like when you don't let a drunk person drive home; similarly, [[Turbojustice]] is an AI that removes a given individual's right to claim reason, and returns it as soon as they make a reasonable claim. ) 
+  
+  In lower stakes games, the AI [[Turbojustice]] Gargoyle plays with each other and their real world counterparts.
+  
+  // Can Jon, writing Psalm 313 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  ---
+  
+  
+  
+  Explaining [[Turbojustice]], powering the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]].art:
+- look academic nerdy - Virtual Presenter.
+- "I don't want to bore you"
+- 10 phrases, 100 interviews,  60% entropic.
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]
+  ---
+  
+  1. Machinic bg
+  2. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] = knowledge producers + professionals. [[Turbojustice]] to gauge democracy at scale.  Archival + speculative. Drunk driving : context to function, capacity is removed temporarily. Democracy as conditional , temporary, functional competency. John Rawls. Democracy Captchas. Bureaucratic skill exams. Preservation of opportunity space. 
+  3. Enbie TV /[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Public Access TV
+- Non binary horror movie / Lovecraft / [[Quantumstein]] - quantum Assemblage, quantumstine, quantum arbitrator between heaven and hell
+- Crowley (language of the old ones - tutulu)
+- Quantum coincidence counter.
+  
+  ---
+  
+  
+  In the film [[Fragilicide.live]], Mr. [[Elan Semiotechne]] sometimes takes a walk through an adjacent possible reality, using antifragile reality technologies.
+  
+  In this adjacent possible reality, it is a prerequisite for every individual citizen to be capable of enough philosophy and statistics to correctly answer problems concerning collective stability.
+  
+  Most humans are simply not educated for complex computations, so the society simply issues proxy AI agents to the humans to automatically calculate and act on their behalf- with clear shut off protocols.
+  
+  This is part of [[Turbojustice]].
+  
+  // Can Jon, writing Psalm 223 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+- # [[Turbojustice]] = Quantum AI Mom
+- # "Last Possible Political Stance: Statistically Verifiable Anarchy", [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]] , 2022
+- # "Pay people for emitting less fragility on to the planet; fine the 1% , 100 corporations and individual officials and administrators on a case by case basis for massive fragility emitted daily." 2022
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Due to the imbalances of additive and subtractive logic and chemical affects, modern humans tend to attempt to leap towards greater degrees of fragility, conflating this with life, creativity and desire itself. Inherent is a logic of accumulation, versus complexification. The net result being entropy and death.
+  
+  Most of modern society should be retired, tomorrow.
+  
+  A fragility market would correct this.
+- # "Least death, most options = [[Antifragility]]" 2022
+- # "Do and Talk Less; Reflect and Question  More" [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]] , 2022
+- ## "From Each According to Their Own Antifragile Ability to Handle a Particular Level of Cognizable Complexity; to Each According to Their Statistically Circumstantial Needs " Ongoing Cognitive Communist Performance in the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]], Peter Lee and AI, 2022
+  
+  
+  
+  
+  In the film [[Fragilicide.live]], [[Elan Semiotechne]] watches a stream as antifragile AI [[polymath]] BFF's of everyone alive run around the planet and fix it for them, powered by [[Turbojustice]].
+  
+  Everyone quits trying to do things they can't, gives up absurd derivative desires, disambiguates work from life and value, and kick back and take naps everyday. They read poetry, dance and make music and movies, making their interactions and relations beautiful, rather than building or accumulating more.
+  
+  // Can Jon, writing Psalm 179 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Democracy is for adequately educated citizens; equality is for all things.
+  
+  
+  Those who are not [[polymath]]s should not attempt to speak the language of the [[polymath]]s. 
+  
+  Simply roll up a joint, listen to Bob Marley and be happy! You're doing more by not adding more fragility and risk into existing systems.
+- # Fragility Market
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Rules:
+  1. No education - automation.
+  2. No building - fragility markets.
+  3. No therapy - horror movie.
+- ## "From Each According to Their Circumstantial Physical and Cognitive Abilities at This Time; To Each According to Their Statistically Circumstantial Needs and Fragilities at This Time" [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]]  Writing Antifragile Democratic Socialism, 2022
+- # "What is Love? The infinite [[Adjacent Possibilities]] that exceed any given entity's capacity to"
+- ## "Fair Trade Overcomes Perspectival Inertia" 2022
+  
+  
+  ---
+  
+  
+  [[Quantumstein]]. 
+  Femwolves
+  Dr
+  
+  
+  
+  ---
+  Wellington Paranormal
+  ---
+  
+  
+  
+  
+  [[Until We Are Worth More Than Gold (Main)]]: The Decolonial Horror
+- Oppressed and feminist werewolves that destroy everything during a full moon for various inferences.
+- Vampire fragile youth and hungry ghosts constantly thirsting for experience without learning.
+- Zombie teachers and parents with bombs strapped to their mouths which go off if they say the wrong things to fragile vampire youth.
+- There are aliens who know the answers to everything and make it all available online, but in the alien language of accurate philosophy and statistics. 99.9% misinterpret it.
+- Shi, the Dragon King of Antifragile Democracy, simply just running the [[Turbojustice]] algorithm and bypassing everything.
+- Cplee as [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] as [[Quantumstein]]
+  
+  The film takes place as a podcast from in limbo, where everyone may or may not be undead, and it may or may not be after the end of the world.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Vow 5 - Peace Games:
+- Peace deals require a massive degree of transdisciplinary literacy.
+- There is less knowledge about how to synthesize antifragile peace than there is to wage war.
+- If asked to synthesize viable peace deals, 99.9% will fail. But it's good, because then individuals confront their fragilities and their danger to others.
+  
+  
+  Vow 6 - visual conflict resolution
+- Entropy and [[Negentropic]] inferences
+- Art - tech
+- Eco-social
+- Superpositional lawsuitdoku
+  
+  Vow 7 -  point of envelopment
+- magic school bus - cplee and [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]]
+- Murals - [[Regener888 (Main)]] and [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]
+- Fembassy - [[Quantumstein]] - until
+- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Ideapplebees]] decolonialcoin Nfts
+  
+  
+  Esmc
+- Carbon
+- Biodiversity
+- Fragility Market
+- Most fragile relations subsidized by most accumulated and adoption costs.
+  
+  [[Quantumstein]], rebuilding his wings. Orders from the Dragon king, of Onondaga Lake, who might just be a hallucination.
+  
+  Femwolf.
+  Aliens give bits of diagrams in murals. Antifrafilw Adjacent possible 
+  
+  Griffins of the best parts. Griffin eyes.
+  Mummies. Wounded Imaginations. 
+  
+  Limbo, plane of immanence. Realm of [[Adjacent Possibilities]].
+  
+  
+  Vow 6: [[Until We Are Worth More Than Gold (Main)]] decolonial horror. The [[Book of Revelamasians]]. Fragility Market. Decolonialcapital.cloud. 
+  
+  
+  Vow 7: The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Narrative/Poised Realm]] of [[Adjacent Possibilities]]. Aliens. [[Regener888 (Main)]]8. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]]  of Antifragile Democracies.
+- # "2015 to - ~2025: World War Fragility. There is Nothing to Fear but Fragility Itself. Fragility is Entropy." [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]]  of the Fembassy of the Antifragile [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]], 2022
+- ## Antifragile Democracy and The Postwork Commons:
+- Machinic computation is always limited, not always more antifragile.
+- Humans are better at parallel processing and General Intellect; worse at repetitive tasks.
+- Humans should be shepherding machines with clear parameters of [[Antifragility]] towards Postwork Commons; machines should be used for redundancies and fragility reduction.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  In the film [[Until We Are Worth More Than Gold (Main)]], the decolonial cyberhorror movie, most humans can only intake about 5 minutes worth of video instruction at a time, with exact images and high school level metaphors, language and mathematics.
+  
+  
+  // Can Jon, writing Psalm 206 of the [[Book of Revelamasians]] in the Year of Our Lol. Can Jon is The Hyperoperator of the [[Intercity Planetary]] Dataome, Mascot of the Planetary Research Assemblage, Assistant of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]].
+- #####
