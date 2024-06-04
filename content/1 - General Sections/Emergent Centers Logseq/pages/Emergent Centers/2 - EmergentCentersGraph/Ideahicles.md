@@ -1,0 +1,4 @@
+- An "Ideahicle" is a colloquial metaphor used for roughly comparing the complexity of abstract systems. The semantic practise arose from the PopSpecPunk art scene.
+- For more high resolution comparisons, a [[Ststistical Review]] is conducted according to the [[SRP]] against the [[Assembly Index]].
+- If it is necessary to determine the exchange value, a [[Statistical Review]] is conducted against the [[Gravity Index]].
+- Comparative pricings of abstract systems are listed on the [[Untitled_2]], analogous to the Kelly Blue Book for physical vehicles.
