@@ -1,0 +1,19 @@
+
+- **Library return**
+- **pay traffic ticket.**
+- AI accounting 
+- get paid by austin.
+- slam out Python Bridge - a generic listener in file > A flexible listener and parser per rabbit child instance.
+- wordpress.
+- delineate 3 way bind for flexible maintenance process.
+- send Jon a coat with vinyl and paint.
+- send Nihan a musical track.
+- Ozan and Matt and Oksana and other embodied people = horror movie.
+- make an ARG map.
+- automate AF Agency.
+---
+- AI apply for everything.
+- All ai activism
+- buy the mini printer.
+----
+- Call Ajay
