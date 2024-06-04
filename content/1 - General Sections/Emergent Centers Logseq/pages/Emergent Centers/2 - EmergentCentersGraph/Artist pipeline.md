@@ -1,0 +1,10 @@
+- 1. Ontological visual arts
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Jon Perez]]
+	- [[Neven Lochhead]]
+- 2. Epistemological performing arts:
+	- [[Ozan Atalan (ext)]]]]
+	- [[Selma Selman]]
+	- [[Big Wiki]]
+- 3. Kickback system
+	- [[Notcoin]]
+	- [[Postwork Capital]]
