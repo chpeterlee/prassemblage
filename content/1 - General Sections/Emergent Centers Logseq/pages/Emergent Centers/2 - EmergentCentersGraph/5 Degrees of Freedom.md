@@ -1,0 +1,5 @@
+- 1. [[Inclusive Scalability]]
+- 2. Frequency
+- 3. Time
+- 4. D.A.R.T.S. translation
+- 5. Justice
