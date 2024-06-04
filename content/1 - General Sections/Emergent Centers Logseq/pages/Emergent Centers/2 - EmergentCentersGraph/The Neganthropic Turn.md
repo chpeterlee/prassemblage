@@ -1,0 +1,1 @@
+- Aimed at a French and Canadian philosophically literate audience.
