@@ -1,0 +1,1 @@
+- Cozycore refers to a genre of cultural production that utilizes elements of abstraction, minimalism and maximalism to produce aesthetic qualitative effects in the viewer.
