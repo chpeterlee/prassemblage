@@ -1,0 +1,20 @@
+- —— 0. Full Index Embedded Below:
+  id:: 03dcfa7e-b4b3-4948-bca7-73497ebc1cef
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] & [[Antifragile Peace]]
+	- [[State Space Exhibitions & The Impossible Embassy]]
+	- 3. Superpositional Network & the Intercity Planetary
+	- [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]]
+	- [[5. INF & Until We Are Worth More Than Gold]]
+	- [[6. Notflix.art & Notcoin]]
+	- [[7. Inferential Press Net & [[inference]] Web]]
+	- [[: Conceptual Dictionary]]
+	- [[9. 100 Years of Non-linear Future History & Geothermalpedia 6000]]
+	- [[10. Skin in the Game of Accurate Markets & The Errorless Review Inferential Protocol]]
+	- [[11. Accurate Fiction & Paradigm Shift Art]]
+	- [[12. Captain Amasia & OSUBI-C]]
+	- [[3. [[Postwork Capital]]  Comparative Synthesis Essays & Methods]]
+	- Social networks:
+		- [Discord](http://discord.Neganthropocenesummit.com)
+		- [fb](https://www.facebook.com/groups/PRAssemblage)
+		- [Exhibitions](https://www.instagram.com/superpositional.gallery/)
+		- [Podcast](http://podcast.amasianpost.site)
