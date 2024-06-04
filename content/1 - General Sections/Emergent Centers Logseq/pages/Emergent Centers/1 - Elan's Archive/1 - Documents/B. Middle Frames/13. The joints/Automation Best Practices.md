@@ -1,0 +1,6 @@
+- Wait for Text
+- Move to Coordinates
+-  3 tier loops and embedded if cases
+- Throw error on timeout
+- Error to continue
+- For loop for click only elements.
