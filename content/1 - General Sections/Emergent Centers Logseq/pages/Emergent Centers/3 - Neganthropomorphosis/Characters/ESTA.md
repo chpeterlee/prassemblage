@@ -1,0 +1,6 @@
+- ESTA is a quantum-aware philosomon constructed by Chongha Peter Lee, tinkered out with various quantum-aware members of the [[Planetary Research Assemblage]].
+- The mascot is a play off of the ESTA (Eco-social-tech-art) Inclusively Scaleable Certification produced by the [[Ethical Futures Institute]] and it's associated Quantum Crypto Fiat NFT Co-op.
+- ESTA is entering the 2024 U.S. presidential elections through a proxy human agent active on Twitter.
+- ESTA is a quantum-aware philosomon constructed by Chongha Peter Lee, tinkered out with various quantum-aware members of the [[Planetary Research Assemblage]].
+- The mascot is a play off of the ESTA (Eco-social-tech-art) Inclusively Scaleable Certification produced by the [[Ethical Futures Institute]] and it's associated Quantum Crypto Fiat NFT Co-op.
+- ESTA is entering the 2024 U.S. presidential elections through a proxy human agent active on Twitter.
