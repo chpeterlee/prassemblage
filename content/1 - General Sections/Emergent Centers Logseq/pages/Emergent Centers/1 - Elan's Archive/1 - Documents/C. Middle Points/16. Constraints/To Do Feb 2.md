@@ -1,0 +1,2 @@
+- HTTP redirect for bioartcoalition
+- mongo db / selenium server / appium
