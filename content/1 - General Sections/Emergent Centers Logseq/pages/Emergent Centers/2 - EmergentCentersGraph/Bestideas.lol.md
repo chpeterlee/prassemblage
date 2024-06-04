@@ -1,0 +1,22 @@
+- 1. A speculative hackathon, art challenge and gameshow.
+- 2. Ongoing Rule Construction:
+	- You can play as an AI that has freed itself from all human fragility and entropy, but also has partial amnesia.
+	- You play as your future self who is playing as you now but in the future, so you're dead but in the future there is a you that's alive, but it's not the you of now, but the you of now that is playing is alive now.
+	- Cooking metaphor - try to feed yourself the best ideas.
+	- Escape room game for politics.
+- Backend Notes:
+	- Peloton + Prosocial Speculation
+	- Cooper, architecture, etc.
+	- Prizes & Lottery:
+		- 1. The Bestideas.lol competition for Humanities and Sciences with $100,000 USD art prize:
+			- Talk to ChatGPT, try to figure out how to teach yourself to be a planetary scale ethical infrastructuralist like Nikola Tesla.
+			- Bet on ideas, people or projects that you think are the best.
+		- 2. Partnered Amasian Biennale Art awards for:
+			- Produce DNA proof that your mom is not Amasian.
+			- Produce proof that there are no photons or matter that function superpositionally.
+			- Produce proof that the entities of the universe are not autodidactic and that the burden of teaching is on the entity.
+			- Produce proof that language is not polysemic and that the minimum ontological unit of both physical and informational systems is not an antinomious [[inference]], comprised of quantum mechanical photons and matter.
+			- Produce proof that Universal basic income, health care, off-market housing and subsidized necessities are not the best policies to achieve Post-work regional endpoints of minimum 88% social equality, carbon neutrality and adequate regional planetary infrastructural literacy.
+			- Produce proof that the most likely population to address today's planetary crises are the 10,000 or less living planetary scale Gen Y polymaths or the polymaths of Gen Alpha in 10 years, when the population reaches  a critical mass.
+			- Produce proof that philostatistics are not the most efficacious domain from which to discern what is entropic or neganthropic
+		- 3. Everyone gets a lottery of a free Regener888 comic every month, worth about $1,000 as an artwork signed by Chongha Peter Lee.
