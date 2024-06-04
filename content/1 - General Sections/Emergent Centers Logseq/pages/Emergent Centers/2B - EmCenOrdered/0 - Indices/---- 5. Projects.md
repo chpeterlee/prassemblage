@@ -1,0 +1,23 @@
+- --- Projects
+	- Ontological : [[Inclusive Scalability]]
+	- Epistemological : [[Statistical Review]]
+	- Evaluatory : [[Indefinite Singularity H.U.D. (Heads Up Display)]]
+	- Artwork : [[Neganthropo.site]]
+	- Game : [[PostworkCraft.lol]]
+		- [[Amasian Peoples]]
+	- ---
+	- [[Regener888 (Notes)]]
+	- [[Least Stupid Movie - Different is More]]
+	- [[The Amasian World: New S.A.]]
+	- ——- 6. Engagement
+		- [[A.R.T.]]
+		- [[Amasian Peoples]]
+		- [[Different is More]]
+	- —- 7. Spectacle
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]]
+		- [[Team Meme]]
+		- [[Least Stupid Gang]]
+	- —-8. New Field
+		- [[Potential Energy Realism]]
+		- [[Philostatistics]]
+		- [[Neganthropic Modernism]]
