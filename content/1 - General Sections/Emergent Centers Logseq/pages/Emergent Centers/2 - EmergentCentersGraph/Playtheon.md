@@ -1,0 +1,18 @@
+- Playtheon is involved in creating and building various peace games:
+- 1. The murder mystery game "Who Killed Thought?"
+- 2. The speculative revolutionary game "Banana Revolution"
+- 3. The speculative end of capitalism game "Postworkverse"
+- 4. The rap, art and news battle peace game, "Bestideas.live"
+- 5. The decolonial western quantum viral horror film and album "Until We Are Worth More Than Gold"
+- 6. The planetary punk track "43 Billion Blows (More Than)"
+- 7.  "Cards Against Fragility"
+- ---
+- These games can be played by real and fictional entities, human and non-human, dead and alive, past, present and adjacent possible.
+- Autodidactic game:
+- 1. Don't die for at least the next 3 months; you can call this as a performance artwork.
+- 2. Think Something. Thinking is winning.
+- 3. Peacefully discuss, self-organize or rest. If you're not enjoying yourself, take a break. Nobody knows everything, give some grace space.
+- 4. Doxx the top 100 families for bonus points.
+- 5. Speculate with or without AI, directly or indirectly, with or without some free Postworkverse tokens.
+- ---
+-
