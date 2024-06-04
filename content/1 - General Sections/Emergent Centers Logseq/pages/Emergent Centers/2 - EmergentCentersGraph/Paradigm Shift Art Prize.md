@@ -1,0 +1,5 @@
+- Scale of Paradigm (Individual, Neighborhood, City, Regional, Multi-regional, Planetary, Universal)
+- Cost/effect and [[net negentropy]] ratio of paradigm.
+- [[Skin in the Game]] by [[Nassim Taleb]]
+- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2FLHcy-om7an.png?alt=media&token=52882fad-d154-4f14-b660-ef81aa495035)
+-
