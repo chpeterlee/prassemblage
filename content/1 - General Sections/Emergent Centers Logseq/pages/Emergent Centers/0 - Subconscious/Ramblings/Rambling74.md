@@ -1,0 +1,30 @@
+- 1. [[Intercity Planetary Almanac]] to an open source set of rates of change compiled by the [[Open Source Universal Basic Intelligence Communities]] which describe the various scales that various components of the planet changes at.
+	- Planetary scale
+		- Planetary rotation = 30 km/s
+		- As fast as its polymaths - 1000.
+	- Multi-regional or continental
+		- Military organizations and cyber warfare.
+		- Trade and meeting speed (Twitter)
+	- Regional
+		- As fast as its market adjustment processes.
+		- As fast as the distance between communicational transactions.
+	- City
+		- As fast as its legislation processes.
+	- Organization
+		- As fast as its knowledge synchronization protocols.
+	- Small Group
+		- 2-3 new [[inference]]s per conversational session, based on advertising and children's creativity studies.
+	- Individual
+		- 7 second short term memory
+		- 8 hours of sleep
+		- 1 paradigm shift per 7 years.
+	- Galaxy
+		- 600 km/s through the universe.
+		- Light speed production of 10^100 adjacent possibilities.
+	- Universe
+		- Photons - light speed.
+			- [[Quantum Invagination]]
+			- Source: https://www.tkm.kit.edu/downloads/TKM1_2011_more_is_different_PWA.pdf
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FXMph4GHw28.png?alt=media&token=a94996db-0c3e-4004-98db-5613e5e0ae26)
+- ---- [[: Full Index]] embedded below:
+	- {{embed  ((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))}}
