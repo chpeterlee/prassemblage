@@ -1,0 +1,11 @@
+- ((7388af51-d133-49ee-bec3-27b83eba5e60))
+- Post-fragiletopia: Until We Are Worth More Than Gold, the DAO of the Mompire of [Amasian.co](http://Amasian.co), the Intercity Planetary Antifragile Peace Accord, the Age of the Neganthropocene, the Illuminated Script of Geothermalpedia 6000 written in the clouds.
+- *an Accurate Fiction and Conceptual Design of a $1 Trillion Accurate Market and Healightenment co-op.
+- ((dc99c5fa-5952-4a2d-8fbb-2daac746921a))
+- ((0ccd0695-0464-418d-9dca-77529caea3d3))
+- ((efd17d41-2c40-4bc6-992f-08f2fdec7c1e))
+- ((2b36face-fbdc-4abb-8ee7-c7f4201952e0))
+- ((7054ac85-db53-461b-9787-f06024ac68a1))
+- ((2b1fb476-ad3b-4934-8008-91afb066d5a0))
+- ((6b6976e9-d027-44ae-9229-cbcca6cdee55))
+- ((bd7b5a09-c2e6-4d99-bec0-f6d0aa84443a))
