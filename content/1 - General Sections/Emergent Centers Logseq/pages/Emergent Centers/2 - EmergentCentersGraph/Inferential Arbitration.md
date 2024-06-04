@@ -1,0 +1,3 @@
+- [[Inferential Arbitration]] is a collection of arbitration protocols is based on the [[Open Source Universal Basic Intelligence Communities]] use of the [[Statistical Review Protocol]] to infer [[net negentropy]] or [[Antifragility]] system states through various human and non-human systems and agents in relation to the [[Universal Attractor]].
+	- {{embed  ((((3ff5a6fb-3f1b-4d09-97a8-2f9cfd8a24aa))))}}
+	-
