@@ -1,0 +1,7 @@
+- 1. War is simply driven by scoio-economic pressures; **the winners are every individual corporation that profits, not any particular nation, military or people.**
+- 2. Art has no technical arm, literacy, or culture with which to institute any solutions or even propose them; it is best to lob pre-made solutions in there at a slow pace, **while making actual art elsewhere.**
+- 3. The planet doesn't have a governmental body or court with which to arbitrate internationally.** It might take another 100 years for one to be proposed and formed**.
+- 4. Nuclear physicists are the linchipin of geopolitical dynamics;** polymath artists can outmaneuver nuclear physicists.**
+- 5. Everyone who eats a chicken egg has eaten children; there are states of human consciousness where a human has no idea what its doing and will try to destroy everything within arms reach,** for zero reason other than that there are statistical chemical reactions and eletrical signals firing within the body.**
+- 6. There won't be a transformation in planetary literacy until 2033, **when Gen Alpha comes of age.**
+- 7. Anyone who is a polymath will try to escape modernized societies, **probably ending up in Finland, Vienna, Berlin and Mongolia.**
