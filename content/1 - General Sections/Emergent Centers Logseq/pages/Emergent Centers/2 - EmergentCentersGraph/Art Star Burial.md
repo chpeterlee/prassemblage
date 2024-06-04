@@ -1,0 +1,13 @@
+- In the film [[Birth of an Invagination - Until We Are Worth More Than Gold]], FCA (Former Contemporary Artist) Chongha Peter Lee buries his future quantumdead self in a present video.
+- Then he gives an artist talk on his death from the perspective of both his future quantumdead self, and his present living self, revealing how he actually quantum died in the future:
+- He had placed an NFT bounty in the present on his own head for himself to kill himself on zoom and become an NFT, if he was objectively verified via philostatistics and quantum AI that he had become some famous hack artist, like say, Beeple, producing high budget entropic bougie bullshit, instead of a high visibility neganthropic artist, kicking ass and saving lives that nobody else dared.
+- For everyday that he is not contributing to an entropic and fragile art market and community, he is rewarded a day of life and also NFT's from his future quantumdead self, who's work is much more valuable because he is both dead, and recognized by a future, more literate audience, using Adorno's GreyMarket.live , which is mostly valued via AI and a few polymaths, because the majority of the present modern world is inaccurate with philostatistics.
+- All of this is commentated live via Zoom, and offered as a physical and mixed reality video installation, with various interfaces to multiple AI available for participants, and NFT's.
+- In addition, for his burial, Chongha Peter Lee has requested a "Smart Coffin" connected to a cross-platform app. This app is a dashboard which tracks the following, 1/3 of the data being accurate, 1/3 false, 1/3 fictional:
+- How many lives he saved and how many groups he was kicked out of
+- How much negentropy he produced for the planet vs. How much entropy, waste and stupidity he produced
+- His best jokes and pranks; his dumbest faux pas and humiliations
+- For his physical body he requests the following to be executed in an artwork called "Art Star Burial"
+- 1. To use mushrooms to detoxify his corpse.
+- 2. To compress him into a diamond to stick up the ass of the 1%
+- 3. Use 10% of the diamond as an optic to pulse polaritons encrypted with the heart of his philostatistical system at his wife, the star named Superpositional Peace and Love.
