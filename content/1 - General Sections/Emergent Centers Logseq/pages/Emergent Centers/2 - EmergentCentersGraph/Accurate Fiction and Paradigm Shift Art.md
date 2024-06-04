@@ -1,0 +1,4 @@
+- A [[paradigm shift]] is the production of a novel net negentropic system state. This can be measured in terms of scale and cost/effect ratio. [[[[accurate]] Fiction]] aims to produce a [[paradigm shift]] through the inferencing of [[accurate]] measurements. The paradigm shift can then be measured in terms of scale and cost/effect ratio.
+- [[Notflix]] produces a Web 3+ media series called the [[Paradigm Shift Art Prize]] based on the loose constraints of [[Paradigm Shift Art]], also known as [[P.O.P.S. Art]].
+- [[Geothermalpedia]] is an [[Accurate Fiction]] being written and maintained by the [[Open Source Universal Basic Intelligence Communities]].
+- [[P.O.P.S. Art]] is an explicit strain of [[Paradigm Shift Art]] which aims to bridge conceptual art and pop realms.
