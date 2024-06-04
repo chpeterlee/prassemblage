@@ -1,0 +1,2 @@
+- [[Quantumchain]] refers to [[quantum computing]] in which each unit of data is in superposition, in various simultaneous ranges from 0 to 1.
+- [[Quantumchain]] is used in various forms of [[Quantum Crypto Fiat]].
