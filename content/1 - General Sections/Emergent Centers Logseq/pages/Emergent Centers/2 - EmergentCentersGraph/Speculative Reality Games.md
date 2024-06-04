@@ -1,0 +1,22 @@
+- Also known as [[Mouthcraft]]
+- Speculative Reality Games are games that allow for interdisciplinary use of speculative tools including, but not confined to:
+	- Philosophical propositions
+		- As used in [[Pure Game (puregame.site)]]
+	- Scientific simulation
+		- The type of simulation used by the [[Ethical Futures Institute (ethicalfutures.site)]]
+	- Artistic invention
+		- [[Game P]]
+	- Cultural games
+		- TODO [[Game of Objective Good Olympics (Goglympics)]]
+		- There is a loose association with darkweb [[Superpositional Reality Games]] - in which it is understood that ultimately all things are just different forms of quantum chemistry. It's as if the universe is a giant equalizer board, and any given thing is simply just a specific equalizer preset.
+- Also known as [[Mouthcraft]]
+- Speculative Reality Games are games that allow for interdisciplinary use of speculative tools including, but not confined to:
+	- Philosophical propositions
+		- As used in [[Pure Game (puregame.site)]]
+	- Scientific simulation
+		- The type of simulation used by the [[Ethical Futures Institute (ethicalfutures.site)]]
+	- Artistic invention
+		- [[Game P]]
+	- Cultural games
+		- TODO [[Game of Objective Good Olympics (Goglympics)]]
+		- There is a loose association with darkweb [[Superpositional Reality Games]] - in which it is understood that ultimately all things are just different forms of quantum chemistry. It's as if the universe is a giant equalizer board, and any given thing is simply just a specific equalizer preset.
