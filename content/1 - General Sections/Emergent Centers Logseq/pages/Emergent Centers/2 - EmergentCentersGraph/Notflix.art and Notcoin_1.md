@@ -1,0 +1,16 @@
+- Notflix.art is a project based on creating culture that is more valuable than the $600 a heartbeat Netflix spends to create absolutely subpar culture and the minimum $1800 a heartbeat that is spent on research that will not prevent planetary eco-collapse in 10 years.
+- Notflix has an ongoing commmitment to articulate the core mechanisms and most probable solutions of [[Recurrent Events]]. In addition it sometimes uses variations of [[Notcoin]].
+- Its 5 series:
+	- 1. 10. Skin in the Game of Accurate Markets & the
+	- 2. [[The Least Stupid Presidential Campaign]]
+	- 3. [[NTV]]
+	- 4. [[The Know Show]]
+	- 5. [[Paradigm Shift Art Prize]]
+	- 6. Recurrent Events vs. Real Current Events
+	- 7. Age of Expropriation: Healightenment, Antifragile Peace and
+- The 5 components of the [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]] it is [[inference]]d in with:
+	- #[[The Art of Peace]]
+	- [[Until We Are Worth More Than Gold (Main)]]
+	- [[Marrying the B.O.S.S. (Bank of [[Selma Selman]])]]
+	- [[100 Years of Nonlinear Future History]]
+	- [[Geothermalpedia]]
