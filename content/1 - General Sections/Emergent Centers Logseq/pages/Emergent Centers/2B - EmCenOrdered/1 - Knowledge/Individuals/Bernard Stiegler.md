@@ -1,0 +1,263 @@
+- [[Bernard Stiegler]]
+	- **[[Bernard Stiegler]]**
+	- ![2016 HTNM [[Bernard Stiegler]] %2830301265471%29 %28cropped%29.jpg](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a8/2016_HTNM_Bernard_Stiegler_%2830301265471%29_%28cropped%29.jpg/220px-2016_HTNM_Bernard_Stiegler_%2830301265471%29_%28cropped%29.jpg)[🔗](https://en.wikipedia.org/wiki/File:2016_HTNM_Bernard_Stiegler_%2830301265471%29_%28cropped%29.jpg)
+	- [[Bernard Stiegler]] in 2016
+	- Born1 April 1952
+	- [Seine-et-Oise](https://en.wikipedia.org/wiki/Seine-et-Oise), France
+	- Died5 August 2020 (aged 68)
+	- [Épineuil-le-Fleuriel](https://en.wikipedia.org/wiki/%C3%89pineuil-le-Fleuriel),1(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-1) France
+	- Education[Université de Toulouse-Le-Mirail](https://en.wikipedia.org/wiki/Universit%C3%A9_Toulouse_II)
+	- [École des Hautes Études en Sciences Sociales](https://en.wikipedia.org/wiki/%C3%89cole_des_Hautes_%C3%89tudes_en_Sciences_Sociales) (PhD, 1993)
+	- Era[21st-century philosophy](https://en.wikipedia.org/wiki/21st-century_philosophy)
+	- Region[Western philosophy](https://en.wikipedia.org/wiki/Western_philosophy)
+	- [School](https://en.wikipedia.org/wiki/List_of_schools_of_philosophy)[Continental philosophy](https://en.wikipedia.org/wiki/Continental_philosophy)
+	- [Deconstruction](https://en.wikipedia.org/wiki/Deconstruction)
+	- [Post-structuralism](https://en.wikipedia.org/wiki/Post-structuralism)2(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-2)
+	- InstitutionsInstitut de recherche et d'innovation, [Centre Georges-Pompidou](https://en.wikipedia.org/wiki/Centre_Georges-Pompidou)
+	- Main interests
+	- [Philosophy of technology](https://en.wikipedia.org/wiki/Philosophy_of_technology) **·** [Individuation](https://en.wikipedia.org/wiki/Individuation)
+	- Notable ideas
+	- Symbolic misery (mass exclusion from cultural production constitutes a form of generalized impoverishment)
+	- [show]()
+	- Influences
+	- [show]()
+	- Influenced
+	- **[[Bernard Stiegler]]** (French: [[stiɡlɛʁ]](https://en.wikipedia.org/wiki/Help:IPA/French); 1 April 1952 – 5 August 2020) was a French philosopher. He was head of the Institut de recherche et d'innovation (IRI), which he founded in 2006 at the [Centre Georges-Pompidou](https://en.wikipedia.org/wiki/Centre_Georges-Pompidou). He was also the founder in 2005 of the political and cultural group, Ars Industrialis; the founder in 2010 of the philosophy school, __pharmakon.fr__, held at [Épineuil-le-Fleuriel](https://en.wikipedia.org/wiki/%C3%89pineuil-le-Fleuriel); and a co-founder in 2018 of Collectif Internation, a group of "politicised researchers"3(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-Jeffries-3) across multiple disciplines.4(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-4) His best known work is __[Technics and Time, 1: The Fault of Epimetheus](https://en.wikipedia.org/wiki/Technics_and_Time,_1)__.
+	- Stiegler has been described as "one of the most influential European philosophers of the 21st century"5(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-5) and an important theorist of the effects of digital technology.3(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-Jeffries-3)
+- Contents
+	- [1Influences and themes](https://en.wikipedia.org/wiki/Bernard_Stiegler#Influences_and_themes)
+	- [2Incarceration](https://en.wikipedia.org/wiki/Bernard_Stiegler#Incarceration)
+	- [3Career](https://en.wikipedia.org/wiki/Bernard_Stiegler#Career)
+	- [4Works](https://en.wikipedia.org/wiki/Bernard_Stiegler#Works)
+	- [5Ars Industrialis](https://en.wikipedia.org/wiki/Bernard_Stiegler#Ars_Industrialis)
+	- [6Épineuil-le-Fleuriel](https://en.wikipedia.org/wiki/Bernard_Stiegler#%C3%89pineuil-le-Fleuriel)
+	- [7Cinema and television](https://en.wikipedia.org/wiki/Bernard_Stiegler#Cinema_and_television)
+	- [8Family](https://en.wikipedia.org/wiki/Bernard_Stiegler#Family)
+	- [9Decorations](https://en.wikipedia.org/wiki/Bernard_Stiegler#Decorations)
+	- [10Bibliography](https://en.wikipedia.org/wiki/Bernard_Stiegler#Bibliography)
+		- [10.1Books in French](https://en.wikipedia.org/wiki/Bernard_Stiegler#Books_in_French)
+		- [10.2Books in English](https://en.wikipedia.org/wiki/Bernard_Stiegler#Books_in_English)
+		- [10.3Other English translations](https://en.wikipedia.org/wiki/Bernard_Stiegler#Other_English_translations)
+	- [11See also](https://en.wikipedia.org/wiki/Bernard_Stiegler#See_also)
+	- [12References](https://en.wikipedia.org/wiki/Bernard_Stiegler#References)
+	- [13Further reading](https://en.wikipedia.org/wiki/Bernard_Stiegler#Further_reading)
+	- [14External links](https://en.wikipedia.org/wiki/Bernard_Stiegler#External_links)
+- Influences and themes[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=1)]
+	- Part of [a series](https://en.wikipedia.org/wiki/Category:Anti-consumerism) on
+	- [Anti-consumerism](https://en.wikipedia.org/wiki/Anti-consumerism)
+	- [show]()
+	- Theories and ideas
+	- [show]()
+	- Notable works
+	- [show]()
+	- [Organizations and groups](https://en.wikipedia.org/wiki/Category:Anti-consumerist_groups)
+	- [hide]()
+	- [People](https://en.wikipedia.org/wiki/Category:Anti-consumerists)
+		- [Jean Baudrillard](https://en.wikipedia.org/wiki/Jean_Baudrillard)
+		- [Mauro Bonaiuti](https://en.wikipedia.org/wiki/Mauro_Bonaiuti)
+		- [Noam Chomsky](https://en.wikipedia.org/wiki/Noam_Chomsky)
+		- [Erich Fromm](https://en.wikipedia.org/wiki/Erich_Fromm)
+		- [Nicholas Georgescu-Roegen](https://en.wikipedia.org/wiki/Nicholas_Georgescu-Roegen)
+		- [Edward Goldsmith](https://en.wikipedia.org/wiki/Edward_Goldsmith)
+		- [Paul Goodman](https://en.wikipedia.org/wiki/Paul_Goodman)
+		- [André Gorz](https://en.wikipedia.org/wiki/Andr%C3%A9_Gorz)
+		- [Ivan Illich](https://en.wikipedia.org/wiki/Ivan_Illich)
+		- [Serge Latouche](https://en.wikipedia.org/wiki/Serge_Latouche)
+		- [Donella Meadows](https://en.wikipedia.org/wiki/Donella_Meadows)
+		- [Pierre Rabhi](https://en.wikipedia.org/wiki/Pierre_Rabhi)
+		- [John Ruskin](https://en.wikipedia.org/wiki/John_Ruskin)
+		- [E. F. Schumacher](https://en.wikipedia.org/wiki/E._F._Schumacher)
+		- [[[Bernard Stiegler]]]()
+		- [Henry David Thoreau](https://en.wikipedia.org/wiki/Henry_David_Thoreau)
+	- [show]()
+	- Related social movements
+	- [show]()
+	- See also
+		- [v](https://en.wikipedia.org/wiki/Template:Anti-consumerism_sidebar)
+		- [t](https://en.wikipedia.org/wiki/Template_talk:Anti-consumerism_sidebar)
+		- [e](https://en.wikipedia.org/w/index.php?title=Template:Anti-consumerism_sidebar&action=edit)
+	- Stiegler's work is influenced by, among others, [Sigmund Freud](https://en.wikipedia.org/wiki/Sigmund_Freud), [André Leroi-Gourhan](https://en.wikipedia.org/wiki/Andr%C3%A9_Leroi-Gourhan), [Gilbert Simondon](https://en.wikipedia.org/wiki/Gilbert_Simondon), [Friedrich Nietzsche](https://en.wikipedia.org/wiki/Friedrich_Nietzsche), [Paul Valéry](https://en.wikipedia.org/wiki/Paul_Val%C3%A9ry), [Edmund Husserl](https://en.wikipedia.org/wiki/Edmund_Husserl), [Martin Heidegger](https://en.wikipedia.org/wiki/Martin_Heidegger), [Karl Marx](https://en.wikipedia.org/wiki/Karl_Marx), [Gilles Deleuze](https://en.wikipedia.org/wiki/Gilles_Deleuze), [Donald Winnicott](https://en.wikipedia.org/wiki/Donald_Winnicott), [Georges Bataille](https://en.wikipedia.org/wiki/Georges_Bataille), and [Jacques Derrida](https://en.wikipedia.org/wiki/Jacques_Derrida).
+	- Key themes are technology, time, [individuation](https://en.wikipedia.org/wiki/Individuation), [consumerism](https://en.wikipedia.org/wiki/Consumerism), [consumer capitalism](https://en.wikipedia.org/wiki/Consumer_capitalism), [technological convergence](https://en.wikipedia.org/wiki/Technological_convergence), [digitization](https://en.wikipedia.org/wiki/Digital_revolution), [Americanization](https://en.wikipedia.org/wiki/Americanization), education and the future of politics and human society.
+- Incarceration[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=2)]
+	- Between 1978 and 1983 Stiegler was incarcerated for armed robbery, first at the [Prison Saint-Michel](https://fr.wikipedia.org/wiki/Prison_Saint-Michel) in [Toulouse](https://en.wikipedia.org/wiki/Toulouse), and then at the [Centre de détention](https://fr.wikipedia.org/wiki/Centre_de_d%C3%A9tention_de_Muret) in [Muret](https://en.wikipedia.org/wiki/Muret). It was during this period that he became interested in philosophy, studying it by correspondence with [Gérard Granel](https://en.wikipedia.org/wiki/G%C3%A9rard_Granel) at the [Université de Toulouse-Le-Mirail](https://en.wikipedia.org/wiki/Universit%C3%A9_Toulouse_II). His transformation in prison is recounted in his book, __Passer à l'acte__ (2003; the English translation of this work is included in the 2009 volume, __[Acting Out](https://en.wikipedia.org/wiki/Acting_Out_%28book%29)__).
+- Career[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=3)]
+	- In 1987–88, with Catherine Counot, Stiegler commissioned an exhibition at the Centre Georges-Pompidou, entitled __Mémoires du futur: bibliothèques et technologies__. Stiegler earned his doctorate from the [École des Hautes Études en Sciences Sociales](https://en.wikipedia.org/wiki/%C3%89cole_des_Hautes_%C3%89tudes_en_Sciences_Sociales) in 1993.6(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-6)7(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-7) He has been a Director at the [Collège international de philosophie](https://en.wikipedia.org/wiki/Coll%C3%A8ge_international_de_philosophie), and a Professor at the [Université de Technologie](https://en.wikipedia.org/wiki/Universit%C3%A9_de_Technologie_de_Compi%C3%A8gne) at [Compiègne](https://en.wikipedia.org/wiki/Compi%C3%A8gne), as well as a visiting professor at [Goldsmiths, University of London](https://en.wikipedia.org/wiki/Goldsmiths,_University_of_London). He has held the positions of Director General at the [Institut National de l'Audiovisuel](https://en.wikipedia.org/wiki/Institut_National_de_l%27Audiovisuel) (INA), and Director General at the [Institut de Recherche et Coordination Acoustique/Musique](https://en.wikipedia.org/wiki/IRCAM) (IRCAM).
+	- On 1 January 2006 he commenced as Director of the Department of Cultural Development at the Centre Georges-Pompidou. He was Director of the Institut de recherche et d'innovation (IRI), which was created at his initiative in April 2006.[__[citation needed](https://en.wikipedia.org/wiki/Wikipedia:Citation_needed)__]
+- Works[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=4)]
+	- Stiegler has been prolifically publishing books, articles and interviews since 1994. His works include several ongoing series of books:
+		- __La technique et le temps__ (3 vols.). The __[Technics and Time](https://en.wikipedia.org/wiki/Technics_and_Time,_1)__ series outlines the heart of Stiegler's philosophical project, and in particular his theses that the role of technics has been repressed throughout the history of philosophy, and that technics, as organised inorganic matter, and as essentially a form of memory, is constitutive of human temporality. The series contains extensive readings of the works of [André Leroi-Gourhan](https://en.wikipedia.org/wiki/Andr%C3%A9_Leroi-Gourhan), [Martin Heidegger](https://en.wikipedia.org/wiki/Martin_Heidegger), [Edmund Husserl](https://en.wikipedia.org/wiki/Edmund_Husserl), and [Immanuel Kant](https://en.wikipedia.org/wiki/Immanuel_Kant). It also contains his explication of the "cinematic constitution of consciousness," as well as his thesis that human beings are essentially "adoptive" and "prosthetic" creatures. All three extant volumes have been published in English translation by Stanford University Press.
+		- __De la misère symbolique__ (2 vols.). This series is concerned in particular with the ways in which cultural, symbolic and informational technologies have become a means of industrialising the formation of desire in the service of production, with destructive consequences for psychic and collective individuation. Stiegler outlines his concepts of "general organology" (a way of thinking the co-individuation of human organs, technical organs, and social organisations) and "genealogy of the sensible" (a way of thinking the historicity of human desire and aesthetics). It contains extensive readings of [Sigmund Freud](https://en.wikipedia.org/wiki/Sigmund_Freud) and [Gilles Deleuze](https://en.wikipedia.org/wiki/Gilles_Deleuze), as well as of the works of [Alain Resnais](https://en.wikipedia.org/wiki/Alain_Resnais), [Bertrand Bonello](https://en.wikipedia.org/wiki/Bertrand_Bonello), [Andy Warhol](https://en.wikipedia.org/wiki/Andy_Warhol), and [Joseph Beuys](https://en.wikipedia.org/wiki/Joseph_Beuys). Both volumes have been published in English translation.
+		- __Mécréance et Discrédit__ (3 vols.). The __Disbelief and Discredit__ series is concerned with the way in which the industrial organisation of production and then consumption has had destructive consequences for the modes of life of human beings, in particular with the way in which the loss of __savoir-faire__ and __savoir-vivre__ (that is, the loss of the knowledge of how to do and how to live), has resulted in what Stiegler calls "generalised proletarianisation." In this series Stiegler makes clear his view that, in the light of the present state of the global technical system, it is not a matter of overcoming capitalism but rather of transforming its industrial basis to prevent the loss of spirit from which it increasingly suffers. In the second volume Stiegler introduces the concept of the "[Antigone](https://en.wikipedia.org/wiki/Antigone_%28Sophocles%29) complex," to describe the psychosocial effects of the destruction of authority—that is, the destruction of the [superego](https://en.wikipedia.org/wiki/Id,_ego,_and_super-ego)—on politics and youth. The series contains extensive readings of Paul Valéry, [Max Weber](https://en.wikipedia.org/wiki/Max_Weber), [Aristotle](https://en.wikipedia.org/wiki/Aristotle), and [Herbert Marcuse](https://en.wikipedia.org/wiki/Herbert_Marcuse), as well as analyses of the crisis of [May 1968](https://en.wikipedia.org/wiki/May_1968_in_France) and the crime of [Patricia and Emmanuel Cartier](https://en.wikipedia.org/wiki/Patricia_and_Emmanuel_Cartier). The [first volume](https://en.wikipedia.org/wiki/The_Decadence_of_Industrial_Democracies) was published in English translation by Polity Press in 2011, the second in 2012 and the third in 2014.
+		- __Constituer l'Europe__ (2 vols.). In this series Stiegler is concerned with the effects of the destruction of psychic and collective individuation on Europe. He argues for the necessity of inaugurating a new individuation process at the continental level, itself embedded in an individuation process operating at a global level. At stake, he says, is the creation of a new European "motive" which will enable the reinvention of industrial civilisation.
+		- __Qu'appelle-t-on panser?__ (2 vols.).
+- Ars Industrialis[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=5)]
+	- On 18 June 2005 Stiegler founded a political and cultural group, Ars Industrialis, the manifesto of which calls for an "industrial politics of spirit." The manifesto was signed by Stiegler and the other co-founders of the group, George Collins, [Marc Crépon](https://fr.wikipedia.org/wiki/Marc_Cr%C3%A9pon), [Catherine Perret](https://en.wikipedia.org/wiki/Catherine_Perret) and Caroline Stiegler. An updated manifesto was released in 2010.
+- Épineuil-le-Fleuriel[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=6)]
+	- On 18 September 2010 Stiegler opened his own philosophy school (called __pharmakon.fr__) in the small French town of [Épineuil-le-Fleuriel](https://en.wikipedia.org/wiki/%C3%89pineuil-le-Fleuriel), in the department of [Cher](https://en.wikipedia.org/wiki/Cher_%28department%29). The school runs a course for __[lycée](https://en.wikipedia.org/wiki/Lyc%C3%A9e)__ students in the region, a doctoral program conducted by videoconference, and a summer academy that involves both groups of students as well as interested inhabitants from the surrounding area. The context and themes of the school lie in Stiegler's argument that we are entering a period of post-consumerism and post-globalization. At a philosophical level, the school is engaged in research, critique and analysis in line with Stiegler's pharmacological approach.
+- Cinema and television[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=7)]
+	- Stiegler features prominently in a number of works of film and television, and has appeared on French television numerous times. Among his most significant appearances are the following:
+		- __[The Ister](https://en.wikipedia.org/wiki/The_Ister_%28film%29)__ (2004), directed by [Daniel Ross](https://en.wikipedia.org/wiki/Daniel_Ross_%28philosopher%29) and David Barison, a feature documentary about Heidegger in which Stiegler plays an important part.
+		- __An Organization of Dreams__ (2009), directed by [Ken McMullen](https://en.wikipedia.org/wiki/Ken_McMullen_%28film_director%29), an experimental thriller inspired by Stiegler's work, and in which he appears.
+		- __Le temps de cerveau disponible__ (2010), directed by [Jean-Robert Viallet](https://en.wikipedia.org/w/index.php?title=Jean-Robert_Viallet&action=edit&redlink=1), a documentary about television in which Stiegler is the main participant.
+		- __Après la gauche__ (2011), directed by Jeremy Forny, a documentary about the problems of the political Left, featuring Stiegler.
+- Family[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=8)]
+	- Stiegler's daughter Barbara (born 1971) is also a philosopher. She attended the [École Normale Supérieure de Fontenay-St-Cloud](https://en.wikipedia.org/wiki/%C3%89cole_Normale_Sup%C3%A9rieure_Lettres_et_Sciences_Humaines), and in 2003 obtained her doctorate from the [University of Paris IV: Paris-Sorbonne](https://en.wikipedia.org/wiki/University_of_Paris_IV:_Paris-Sorbonne). Barbara Stiegler is the author of __Nietzsche et la biologie__ (2001), __Nietzsche et la critique de la chair: Dionysos, Ariane, le Christ__ (2005), __« Il faut s'adapter » : Sur un nouvel impératif politique__ (2019), __Du cap aux grèves. Récit d'une mobilisation. 17 novembre 2018 - 5 mars 2020__ (2020) and __De la démocratie en Pandémie ; santé, recherche, éducation__ (2021). She is not to be confused with the German sociologist of the same name.
+- Decorations[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=9)]
+	- [Officer of the Order of Arts and Letters](https://en.wikipedia.org/wiki/Ordre_des_Arts_et_des_Lettres) (2016)8(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-8)
+- Bibliography[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=10)]
+- Books in French[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=11)]
+	- (1994) __[La technique et le temps. Tome 1, La faute d'Epiméthée](https://en.wikipedia.org/wiki/Technics_and_Time,_1)__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0440-9](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0440-9)
+	- (1996) __[Échographies de la télévision. Entretiens filmés](https://en.wikipedia.org/wiki/Echographies_of_Television)__ (with Jacques Derrida). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0480-8](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0480-8)
+	- (1996) __La technique et le temps. Tome 2, La désorientation__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0468-9](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0468-9)
+	- (2001) __La technique et le temps. Tome 3, Le temps du cinéma et la question du mal-être__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0563-4](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0563-4)
+	- (2003) __Aimer, s'aimer, nous aimer. Du 11 septembre au 21 avril__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0629-0](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0629-0)
+	- (2003) __Passer à l'acte__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0616-9](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0616-9)
+	- (2004) __Mécréance et Discrédit. Tome 1, La décadence des démocraties industrielles__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0660-6](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0660-6)
+	- (2004) __Philosopher par accident. Entretiens avec Elie During__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0648-7](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0648-7)
+	- (2004) __De la misère symbolique. Tome 2, La Catastrophè du sensible__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0634-7](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0634-7)
+	- (2004) __De la misère symbolique. Tome 1, L'époque hyperindustrielle__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0635-5](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0635-5)
+	- (2005) __L'attente de l'inattendu__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-9700474-8-9](https://en.wikipedia.org/wiki/Special:BookSources/2-9700474-8-9)
+	- (2005) __Constituer l'Europe. Tome 2, Le motif européen__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0690-8](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0690-8)
+	- (2005) __Constituer l'Europe. Tome 1, Dans un monde sans vergogne__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0689-4](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0689-4)
+	- (2006) __Réenchanter le monde. La valeur esprit contre le populisme industriel__ (with Marc Crépon, George Collins & Catherine Perret). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-08-210585-7](https://en.wikipedia.org/wiki/Special:BookSources/2-08-210585-7)
+	- (2006) __La télécratie contre la Démocratie__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-08-210569-5](https://en.wikipedia.org/wiki/Special:BookSources/2-08-210569-5)
+	- (2006) __Le théâtre, le peuple, la passion__ (with Jean-Christophe Bailly & Denis Guénoun). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-84681-170-9](https://en.wikipedia.org/wiki/Special:BookSources/2-84681-170-9)
+	- (2006) __Des pieds et des mains. Petite conférence sur l'homme et son désir de grandir__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-227-47566-8](https://en.wikipedia.org/wiki/Special:BookSources/2-227-47566-8)
+	- (2006) __Mécréance et Discrédit. Tome 3, L'esprit perdu du capitalisme__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0715-7](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0715-7)
+	- (2006) __Mécréance et Discrédit. Tome 2, Les sociétés incontrolables d'individus désaffectés__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0706-8](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0706-8)
+	- (2007) __Avril-22. Ceux qui préfèrent ne pas__ (with Alain Jugnon, [Alain Badiou](https://en.wikipedia.org/wiki/Alain_Badiou) & Michel Surya). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-916492-31-3](https://en.wikipedia.org/wiki/Special:BookSources/2-916492-31-3)
+	- (2007) __De la démocratie participative. Fondements et limites__ (with Marc Crépon). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7555-0033-6](https://en.wikipedia.org/wiki/Special:BookSources/2-7555-0033-6)
+	- (2008) __Prendre Soin. Tome 1, De la jeunesse et des générations__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-08-120736-2](https://en.wikipedia.org/wiki/Special:BookSources/2-08-120736-2)
+	- (2008) __Economie de l'hypermatériel et psychopouvoir__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-84205-945-X](https://en.wikipedia.org/wiki/Special:BookSources/2-84205-945-X)
+	- (2009) __Faut-il interdire les écrans aux enfants?__ (with Serge Tisseron). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-918414-12-3](https://en.wikipedia.org/wiki/Special:BookSources/2-918414-12-3)
+	- (2009) __Pour en Finir avec la Mécroissance__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-08-122492-5](https://en.wikipedia.org/wiki/Special:BookSources/2-08-122492-5)
+	- (2009) __Pour une nouvelle critique de l'économie politique__ [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7186-0797-1](https://en.wikipedia.org/wiki/Special:BookSources/2-7186-0797-1)
+	- (2010) __Ce qui fait que la vie vaut la peine d'être vécue. De la pharmacologie__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-08-122035-0](https://en.wikipedia.org/wiki/Special:BookSources/2-08-122035-0)
+	- (2012) __L'école, le numérique et la société qui vient__ (with Philippe Meirieu & Denis Kambouchner). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7555-0644-X](https://en.wikipedia.org/wiki/Special:BookSources/2-7555-0644-X)
+	- (2012) __Etats de choc. Bêtise et savoir au XXIe siècle__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-7555-0645-8](https://en.wikipedia.org/wiki/Special:BookSources/2-7555-0645-8)
+	- (2013) __Pharmacologie du Front national__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-2-08-128461-6](https://en.wikipedia.org/wiki/Special:BookSources/978-2-08-128461-6)
+	- (2015) __La société automatique. Tome 1, L'avenir du travail__. [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [2-2136-8565-7](https://en.wikipedia.org/wiki/Special:BookSources/2-2136-8565-7).
+	- (2015) __L'emploi est mort, vive le travail!__ (with Ariel Kyrou). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-2-75550-746-1](https://en.wikipedia.org/wiki/Special:BookSources/978-2-75550-746-1).
+	- (2016) __Dans la disruption. Comment ne pas devenir fou?__
+	- (2018) __Qu'appelle-t-on panser? 1. L'immense régression__
+	- (2020) __Qu'appelle-t-on panser? 2. La leçon de Greta Thunberg__
+	- (2020) __Bifurquer: Il n-y a pas d'alternative__ (with the Collectif Internation)
+- Books in English[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=12)]
+	- (1998) __[Technics and Time, 1: The Fault of Epimetheus](https://en.wikipedia.org/wiki/Technics_and_Time,_1)__ (Stanford: Stanford University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-8047-3041-9](https://en.wikipedia.org/wiki/Special:BookSources/978-0-8047-3041-9)
+	- (2002) __[Echographies of Television: Filmed Interviews](https://en.wikipedia.org/wiki/Echographies_of_Television)__ (Cambridge: Polity Press), with Jacques Derrida. Including Stiegler, "The Discrete Image." [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-7456-2036-1](https://en.wikipedia.org/wiki/Special:BookSources/0-7456-2036-1)
+	- (2009) __[Acting Out](https://en.wikipedia.org/wiki/Acting_Out_%28book%29)__ (Stanford: Stanford University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-8047-5869-7](https://en.wikipedia.org/wiki/Special:BookSources/0-8047-5869-7)
+	- (2009) __Technics and Time, 2: Disorientation__ (Stanford: Stanford University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-8047-3014-8](https://en.wikipedia.org/wiki/Special:BookSources/0-8047-3014-8)
+	- (2010) __Technics and Time, 3: Cinematic Time and the Question of Malaise__ (Stanford: Stanford University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-8047-6168-X](https://en.wikipedia.org/wiki/Special:BookSources/0-8047-6168-X)
+	- (2010) __[For a New Critique of Political Economy](https://en.wikipedia.org/wiki/For_a_New_Critique_of_Political_Economy)__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-7456-4804-0](https://en.wikipedia.org/wiki/Special:BookSources/978-0-7456-4804-0)
+	- (2010) __Taking Care of Youth and the Generations__ (Stanford: Stanford University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-8047-6273-2](https://en.wikipedia.org/wiki/Special:BookSources/0-8047-6273-2)
+	- (2011) __[The Decadence of Industrial Democracies: Disbelief and Discredit, 1](https://en.wikipedia.org/wiki/The_Decadence_of_Industrial_Democracies)__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-7456-4810-X](https://en.wikipedia.org/wiki/Special:BookSources/0-7456-4810-X)
+	- (2013) __Uncontrollable Societies of Disaffected Individuals: Disbelief and Discredit, 2__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-7456-4812-6](https://en.wikipedia.org/wiki/Special:BookSources/0-7456-4812-6)
+	- (2013) __What Makes Life Worth Living: On Pharmacology__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-7456-6271-8](https://en.wikipedia.org/wiki/Special:BookSources/978-0-7456-6271-8)
+	- (2014) __The Lost Spirit of Capitalism: Disbelief and Discredit, 3__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-7456-4814-9](https://en.wikipedia.org/wiki/Special:BookSources/978-0-7456-4814-9)
+	- (2014) __The Re-Enchantment of the World: The Value of Spirit Against Industrial Populism__ (London and New York: Bloomsbury). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-1-4411-6925-9](https://en.wikipedia.org/wiki/Special:BookSources/978-1-4411-6925-9)
+	- (2014) __Symbolic Misery, Volume 1: The Hyper-Industrial Epoch__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-7456-5264-1](https://en.wikipedia.org/wiki/Special:BookSources/978-0-7456-5264-1) (hardcover) [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-0-7456-5265-8](https://en.wikipedia.org/wiki/Special:BookSources/978-0-7456-5265-8) (paperback)
+	- (2015) __States of Shock: Stupidity and Knowledge in the 21st Century__ (Cambridge: Polity Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-7456-6494-6](https://en.wikipedia.org/wiki/Special:BookSources/0-7456-6494-6)
+	- (2015) __Symbolic Misery, Volume 2: The Catastrophe of the Sensible__ (Cambridge: Polity Press).
+	- (2016) __Automatic Society, Volume 1: The Future of Work__ (Cambridge: Polity Press).
+	- (2017) __Philosophising by Accident: Interview with Élie During__ (Edinburgh: Edinburgh University Press).
+	- (2018) __The Neganthropocene__ (London: Open Humanities Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-1-78542-048-1](https://en.wikipedia.org/wiki/Special:BookSources/978-1-78542-048-1)
+	- (2019) __The Age of Disruption: Technology and Madness in Computational Capitalism__ (Cambridge: Polity Press).
+	- (2020) __Nanjing Lectures 2016–2019__ (London: Open Humanities Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [978-1-78542-080-1](https://en.wikipedia.org/wiki/Special:BookSources/978-1-78542-080-1)
+	- (2021) __Bifurcate: 'There is No Alternative'__, edited by Stiegler with the Internation Collective (London: Open Humanities Press).
+- Other English translations[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=13)]
+	- (1993) "Questioning Technology and Time," __Tekhnema__ 1: 31–44.
+	- (1996) "Persephone, Oedipus, Epimetheus," __Tekhnema__ 3: 69-112.
+	- (1998) "The Time of Cinema. On the 'New World' and 'Cultural Exception'," __Tekhnema__ 4: 62–114.
+	- (2001) "New Industrial Temporal Objects," in Rae Earnshaw, Richard Guedj, Andries van Dam, & John Vince (eds.), __Frontiers of Human-Centred Computing, Online Communities and Virtual Environments__ (London: Springer-Verlag). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [1-85233-238-7](https://en.wikipedia.org/wiki/Special:BookSources/1-85233-238-7)
+	- (2001) "Derrida and Technology: Fidelity at the Limits of Deconstruction and the Prosthesis of Faith," in Tom Cohen (ed.), __Jacques Derrida and the Humanities__ (Cambridge & New York: Cambridge University Press). [ISBN](https://en.wikipedia.org/wiki/ISBN_%28identifier%29) [0-521-62565-3](https://en.wikipedia.org/wiki/Special:BookSources/0-521-62565-3)
+	- (2002) "Transcendental Imagination in a Thousand Points," __New Formations__ 46: 7–22.
+	- (2003) "Technics of Decision: An Interview," __Angelaki__ 8: 151–67.
+	- (2006) "Philosophising By Accident," __Public__ 33: 98–107, an extract from __Passer à l'acte__.
+	- (2006) "Anamnesis and Hypomnesis: The Memories of Desire," in Louis Armand & Arthur Bradley (eds.), __Technicity__ (Prague: Litteraria Pragensia): 15–41.
+	- (2007) "The True Price of Towering Capitalism: [[Bernard Stiegler]] Interviewed," __Queen's Quarterly__ 114: 340–350.
+	- (2007) "Technoscience and Reproduction," __Parallax__ 13 (4): 29–45.
+	- (2007) "Technics, Media, Teleology: Interview with [[Bernard Stiegler]]," __Theory, Culture & Society__ 24 (7–8): 334–41.
+	- (2009) "The Carnival of the New Screen: From Hegemony to Isonomy," in Pelle Snickars & Patrick Vonderau (eds.), __The YouTube Reader__ (Stockholm: National Library of Sweden): 40–59.
+	- (2009) "Teleologics of the Snail: The Errant Self Wired to a WiMax Network," __Theory, Culture & Society__ 26 (2–3): 33–45.
+	- (2009) "The Magic Skin; or, The Franco-European Accident of Philosophy after Jacques Derrida," __Qui Parle__ 18: 97–110.
+	- (2010) "Telecracy Against Democracy," __Cultural Politics__ 6: 171–80.
+	- (2010) "Memory," in W. J. T. Mitchell & Mark B. N. Hansen (eds.), __Critical Terms for Media Studies__ (Chicago & London: University of Chicago Press): 66–87.
+	- (2010) "Knowledge, Care, and Trans-Individuation: An Interview with [[Bernard Stiegler]]," __Cultural Politics__ 6: 150–70.
+	- (2010) "[[Bernard Stiegler]]'s Pharmacy: A Conversation," __Configurations__ 18 (3): 459–76.
+	- (2011) "The Tongue of the Eye: What 'Art History' Means," in Jacques Khalip & Robert Mitchell (eds.), __Releasing the Image: From Literature to New Media__ (Stanford: Stanford University Press, 2011): 222–36.
+	- (2011) "The Pharmacology of the Spirit," in Jane Elliott & Derek Attridge (eds.), __Theory After 'Theory'__ (New York: Routledge): 294–310.
+	- (2012) "Five Hundred Million Friends: The Pharmacology of Friendship," in __Umbr(a): Technology__, No. 1: 59–75.
+	- (2013) "Doing and Saying Stupid Things in the Twentieth Century: Bêtise and Animality in Deleuze and Derrida," __[Angelaki](https://en.wikipedia.org/wiki/Angelaki)__ 18: 159–74.
+	- (2013) "The Indexing of Things," in Ulrik Ekman (ed.), __Throughout: Art and Culture Emerging with Ubiquitous Computing__ (Cambridge, MA & London: MIT Press): 493–502.
+	- (2013) "Teleologics of the Snail, or the Errancies of the Equipped Self in a WiMax Network," in Ulrik Ekman (ed.), __Throughout: Art and Culture Emerging with Ubiquitous Computing__ (Cambridge, MA & London: MIT Press): 479–92.
+	- (2014) "Programs of the Improbable, Short Circuits of the Unheard-of," __Diacritics__ 42: 70–108.
+	- (2016) "__Ars__ and Organological Inventions in Societies of Hyper-Control", __Leonardo__ 49: 480–484.9(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-9)
+- See also[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=14)]
+	- [différance](https://en.wikipedia.org/wiki/Diff%C3%A9rance#Diff.C3.A9rance.2C_life.2C_technics)
+	- [The European Dream](https://en.wikipedia.org/wiki/The_European_Dream#Criticism_and_commentary)
+	- [Gilbert Simondon](https://en.wikipedia.org/wiki/Gilbert_Simondon)
+	- [individuation](https://en.wikipedia.org/wiki/Individuation#Bernard_Stiegler)
+	- [list of deconstructionists](https://en.wikipedia.org/wiki/List_of_deconstructionists)
+- References[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=15)]
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-1)** ["[[Bernard Stiegler]], le grand philosophe français d'Epineuil-le-Fleuriel, est décédé"](https://www.leberry.fr/epineuil-le-fleuriel-18360/actualites/bernard-stiegler-le-grand-philosophe-francais-d-epineuil-le-fleuriel-est-decede_13821251/), 7. August 2020.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-2)** Benoît Dillet, Robert Porter, Iain Mackenzie (eds.), __The Edinburgh Companion to Poststructuralism__, Edinburgh University Press, 2013, ch. 23.
+	- ^ [Jump up to:__**a**__](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-Jeffries_3-0) [__**b**__](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-Jeffries_3-1) Jeffries, Stuart (18 August 2020). ["[[Bernard Stiegler]] obituary"](https://www.theguardian.com/world/2020/aug/18/bernard-stiegler-obituary). __The Guardian__. [ISSN](https://en.wikipedia.org/wiki/ISSN_%28identifier%29) [0261-3077](https://www.worldcat.org/issn/0261-3077). Retrieved 9 October 2020.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-4)** ["Face à la crise climatique et sociale, jusqu'où revoir nos modèles ?"](https://www.la-croix.com/Debats/Forum-et-debats/Face-crise-climatique-sociale-jusquou-revoir-modeles-2020-01-10-1201070866). __La Croix__ (in French). 10 January 2020. [ISSN](https://en.wikipedia.org/wiki/ISSN_%28identifier%29) [0242-6056](https://www.worldcat.org/issn/0242-6056). Retrieved 9 October 2020.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-5)** Bilmes, Leonid (7 November 2019). ["Daring to Hope for the Improbable: On [[Bernard Stiegler]]'s "The Age of Disruption""](https://lareviewofbooks.org/article/daring-to-hope-for-the-improbable-on-bernard-stieglers-the-age-of-disruption/). __Los Angeles Review of Books__. Retrieved 9 October 2020.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-6)** [Notice d'autorité personne](https://catalogue.bnf.fr/ark:/12148/cb123809990.public)
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-7)** ["[[Bernard Stiegler]], penseur des mutations contemporaines, est mort à 68 ans"](https://www.lefigaro.fr/culture/le-philosophe-bernard-stiegler-est-mort-20200807), __[Le Figaro](https://en.wikipedia.org/wiki/Le_Figaro)__, 7 August 2020.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-8)** [""Nomination dans l'ordre des Arts et des Lettres janvier 2016""](https://web.archive.org/web/20160605065819/http://www.culturecommunication.gouv.fr/Ministere/Services-rattaches-a-la-ministre/Section-des-distinctions-honorifiques/Arretes-de-Nominations-dans-l-ordre-des-Arts-et-des-Lettres/Nomination-dans-l-ordre-des-Arts-et-des-Lettres-janvier-2016). Archived from [the original](http://www.culturecommunication.gouv.fr/Ministere/Services-rattaches-a-la-ministre/Section-des-distinctions-honorifiques/Arretes-de-Nominations-dans-l-ordre-des-Arts-et-des-Lettres/Nomination-dans-l-ordre-des-Arts-et-des-Lettres-janvier-2016) on 5 June 2016. Retrieved 3 April 2016.
+	- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-9)** Stiegler, Bernard; Tron, Colette; Ross, Daniel (1 October 2016). ["Ars and Organological Inventions in Societies of Hyper-Control"](https://doi.org/10.1162/LEON_a_01080). __Leonardo__. **49** (5): 480–484. [doi](https://en.wikipedia.org/wiki/Doi_%28identifier%29):[10.1162/LEON_a_01080](https://doi.org/10.1162%2FLEON_a_01080). [ISSN](https://en.wikipedia.org/wiki/ISSN_%28identifier%29) [0024-094X](https://www.worldcat.org/issn/0024-094X). [S2CID](https://en.wikipedia.org/wiki/S2CID_%28identifier%29) [57565018](https://api.semanticscholar.org/CorpusID:57565018).
+- Further reading[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=16)]
+	- **Secondary literature (English)**
+		- Ross Abbinnett, __The Thought of [[Bernard Stiegler]]: Capitalism, Technology, and the Politics of Spirit__ (London, Routledge, 2018)
+		- Ross Abbinnett, 'Living After Auschwitz: Memory, Culture and Biopolitics in the Work of Bernard Stielger and Giorgio Agamben', 'Theory, Culture and Society', online (2018)
+		- Ross Abbinnett, 'The Politics of Spirit in Stiegler's Techno-Pharmacology', 'Theory, Culture and Society', 32(4)(2014): 65-80
+		- Jean-Hugues Barthélémy, "Individuation and knowledge. The refutation of idealism in Simondon's Heritage in France", tr. M. Hayward & A. De Boever, __SubStance__, n°3/2012, University of Wisconsin Press
+		- Stephen Barker, "Threshold (pro-)positions: Touch, Techné, Technics," __Derrida Today__ 2 (2009): 44–65.
+		- Stephen Barker, Transformation as an Ontological Imperative: The Human Future According to [[Bernard Stiegler]].1(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-10)
+		- Richard Beardsworth, From a Genealogy of Matter to a Politics of Memory: Stiegler's Thinking of Technics.2(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-11)
+		- Richard Beardsworth, "Technology and Politics: A Response to [[Bernard Stiegler]]," __Cultural Politics__ 6: 181–99.
+		- [Geoffrey Bennington](https://en.wikipedia.org/wiki/Geoffrey_Bennington), "Emergencies," __Oxford Literary Review__ 18 (1996): 175–216. Collected in __Interrupting Derrida__ (New York: Routledge, 2000): 162–79.
+		- Jonathan Carter. "Transindividuating Nodes: Rhetoric as the Architechnical Organizer of Networks," __Rhetoric Society Quarterly__ 49, 5 (2019): 542–565.
+		- Patrick Crogan, Essential Viewing: Review of Stiegler, __La technique et le temps 3.__3(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-12)
+		- Patrick Crogan, Thinking Cinema(tically) and the Industrial Temporal Object: Schemes and Technics of Experience in [[Bernard Stiegler]]'s __Technics and Time__ series.4(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-13)
+		- Patrick Crogan, "[[Bernard Stiegler]]: Philosophy, Technics, and Activism," __Cultural Politics__ 6: 133–56.
+		- Ulrik Ekman, "Of Transductive Speed—Stiegler," __Parallax__ 13, 4 (2007): 46–63.
+		- Michael Gallope, Heidegger, Stiegler, and the Question of a Musical Technics.5(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-14)
+		- Mark B. N. Hansen, "Realtime Synthesis" and the Différance of the Body: Technocultural Studies in the Wake of Deconstruction.6(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-15)
+		- Mark B. N. Hansen, "Media Theory," __Theory, Culture & Society__ 23 (2006): 297–306.
+		- Conor Heaney, "Rhythmic Nootechnics: Stiegler, Whitehead, and Noetic Life," __Educational Philosophy and Theory__, 2019.7(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-16)
+		- Christina Howells & Gerald Moore (eds.), __Stiegler and Technics__ (Edinburgh: Edinburgh University Press, 2013).
+		- Ian James, __The Technique of Thought: Nancy, Laruelle, Malabou, and Stiegler After Naturalism__ (Minneapolis: University of Minnesota Press, 2019).
+		- Ian James, __The New French Philosophy__ (Cambridge: Polity, 2012).
+		- Ian James, "[[Bernard Stiegler]] and the Time of Technics," __Cultural Politics__ 6: 207–27.
+		- John Lechte, "Technics, Time and Stiegler's 'Orthographic Moment'," __Parallax__ 13, 4 (2007): 64–77.
+		- Ben Roberts, "Stiegler Reading Derrida: The Prosthesis of Deconstruction in Technics," __Postmodern Culture__ 16, 1 (2005).
+		- Ben Roberts, "Cinema as Mnemotechnics: [[Bernard Stiegler]] and the 'Industrialization of Memory'," __Angelaki__ 11 (2006): 55–63.
+		- Ben Roberts, "Rousseau, Stiegler and the Aporia of Origin," __Forum for Modern Language Studies__ 42 (2006): 382–94.
+		- Ben Roberts, "Introduction to [[Bernard Stiegler]]," __Parallax__ 13, 4 (2007): 26–28.
+		- Daniel Ross, The Cinematic Condition of the Politico-Philosophical Future.8(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-17)
+		- Daniel Ross, Politics and Aesthetics, or, Transformations of Aristotle in [[Bernard Stiegler]].9(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-18)
+		- Daniel Ross, Translator's Introduction to [[Bernard Stiegler]]'s "Pharmacology of Desire: Drive-based Capitalism and Libidinal Dis-economy".10(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-19)
+		- Jared Russell, "Stiegler and the Clinic," __Undecidable Unconscious: A Journal of Deconstruction and Psychoanalysis__ 2 (2015): 95-114.
+		- Ben Turner, "Life and the Technical Transformation of Différance: Stiegler and the Noo-Politics of Becoming Non-Inhuman," __Derrida Today__ 9:2 (2016): 177–198.
+		- Ben Turner, "Ideology and Post-structuralism after [[Bernard Stiegler]]," __Journal of Political Ideologies__ 22:1 (2017): 92-110.
+		- Ben Turner, "From Resistance to Invention in the Politics of the Impossible: [[Bernard Stiegler]]'s Political Reading of Maurice Blanchot," __Contemporary Political Theory__ (forthcoming).
+		- Nathan Van Camp, "Stiegler, Habermas and the Techno-logical Condition of Man," __Journal for Cultural Research__ 13 (2009): 125–41.
+		- David Wills, "Techn__e__ology or the Discourse of Speed," in Marquard Smith & Joanne Morra (eds.), __The Prosthetic Impulse: From a Posthuman Present to a Biocultural Future__ (Cambridge, Massachusetts & London: MIT Press, 2006).
+	- **Secondary literature (French)**Jean-Hugues Barthélémy, "De la finitude rétentionnelle. Sur __La technique et le temps__ de [[Bernard Stiegler]]", in P-E. Schmit et P-A. Chardel (dir.), __Phénoménologie et technique(s)__, Le Cercle Herméneutique Editeur (2008).Amitiés de [[Bernard Stiegler]], réunies par [Jean-Luc Nancy](https://en.wikipedia.org/wiki/Jean-Luc_Nancy), Textes de Emily Apter, Didier Cahen, [Michel Deguy](https://en.wikipedia.org/wiki/Michel_Deguy), [Divya Dwivedi](https://en.wikipedia.org/wiki/Divya_Dwivedi), Erich Hörl, Yuk Hui, [Achille Mbembe](https://en.wikipedia.org/wiki/Achille_Mbembe), [Shaj Mohan](https://en.wikipedia.org/wiki/Shaj_Mohan), Jean-Luc Nancy, Peter Szendy, Esther Tellermann, Colette Tron. [Editions Galilée](https://en.wikipedia.org/wiki/%C3%89ditions_Galil%C3%A9e), 2021Jean-Hugues Barthélémy, « Memoria, Immaginazione e Tecnica nell'opera di B. Stiegler » (trad. M. Feyles), __in__ Martino Feyles (dir.), __Memoria, Immaginazione e tecnica__, Rome, NEU, 2010; pp. 189–198.Jean-Hugues Barthélémy, "Penser après Simondon et par-delà Deleuze", __Cahiers Simondon N°2__, Paris, L'Harmattan, 2010.Online paper about Stiegler's link to Simondon, by Jean-Hugues Barthélémy et Vincent Bontems11(https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_note-20)Pierre-Antoine Chardel, "De l'écriture aux téle-technologies (ou le jeu de la difference en question)", in P-E Schmit et P-A Chardel (dir.), __Phénoménologie et technique(s)__, Le Cercle Herméneutique Editeur (2008).Benoit Dillet & Alain Jugnon (eds.), __Technologiques: La Pharmacie de [[Bernard Stiegler]]__ (Nantes: Cécile Defaut, 2013).
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-10)** ["Archived copy"](https://web.archive.org/web/20100725015248/http://www.transformationsjournal.org/journal/issue_17/article_01.shtml). __www.transformationsjournal.org__. Archived from [the original](http://www.transformationsjournal.org/journal/issue_17/article_01.shtml) on 25 July 2010. Retrieved 12 January 2022.
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-11)** ["From a Genealogy of Matter"](http://tekhnema.free.fr/2Beardsworth.htm).
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-12)** http://www.film-philosophy.com/2006v10n2/crogan.pdf[__[bare URL PDF](https://en.wikipedia.org/wiki/Wikipedia:Bare_URLs)__]
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-13)** Crogan, Patrick. ["Thinking cinema(tically) and the Industrial Temporal Object: Schemes and technics of experience in [[Bernard Stiegler]]'s Technics and Time series"](http://scan.net.au/scan/journal/display.php?journal_id=93). __[Scan: Journal of Media Arts Culture](https://en.wikipedia.org/wiki/Scan:_Journal_of_Media_Arts_Culture)__.
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-14)** https://wayback.archive-it.org/all/20070630201234/http://www.shef.ac.uk/content/1/c6/06/01/82/Gallope%20Sheffield_paper.pdf[__[bare URL PDF](https://en.wikipedia.org/wiki/Wikipedia:Bare_URLs)__]
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-15)** ["CM2004 Article: Hansen"](https://web.archive.org/web/20070205152600/http://culturemachine.tees.ac.uk/Cmach/Backissues/j006/Articles/hansen.htm). Archived from [the original](http://culturemachine.tees.ac.uk/Cmach/Backissues/j006/Articles/hansen.htm) on 5 February 2007.
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-16)** Heaney, Conor (2020). ["Rhythmic nootechnics: Stiegler, Whitehead, and noetic life"](http://www.tandfonline.com/doi/full/10.1080/00131857.2019.1625768). __Educational Philosophy and Theory__. **52** (4): 397–408. [doi](https://en.wikipedia.org/wiki/Doi_%28identifier%29):[10.1080/00131857.2019.1625768](https://doi.org/10.1080%2F00131857.2019.1625768). [S2CID](https://en.wikipedia.org/wiki/S2CID_%28identifier%29) [197728256](https://api.semanticscholar.org/CorpusID:197728256).
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-17)** Ross, Daniel. ["The cinematic condition of the politico-philosophical future"](http://scan.net.au/scan/journal/display.php?journal_id=99). __[Scan: Journal of Media Arts Culture](https://en.wikipedia.org/wiki/Scan:_Journal_of_Media_Arts_Culture)__.
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-18)** ["Archived copy"](https://web.archive.org/web/20100725015317/http://www.transformationsjournal.org/journal/issue_17/article_04.shtml). __www.transformationsjournal.org__. Archived from [the original](http://www.transformationsjournal.org/journal/issue_17/article_04.shtml) on 25 July 2010. Retrieved 12 January 2022.
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-19)** Ross, Daniel (2011). ["Translator's Introduction to [[Bernard Stiegler]]'s 'Pharmacology of Desire: Drive-based Capitalism and Libidinal Dis-economy'"](https://www.academia.edu/12685430). __New Formations__. **72** (72): 146–149. [doi](https://en.wikipedia.org/wiki/Doi_%28identifier%29):[10.3898/NEWF.72.11.2011](https://doi.org/10.3898%2FNEWF.72.11.2011).
+		- **[^](https://en.wikipedia.org/wiki/Bernard_Stiegler#cite_ref-20)** ["Archived copy"](https://web.archive.org/web/20081012230654/http://revues.mshparisnord.org/appareil/index.php?id=72). Archived from [the original](http://revues.mshparisnord.org/appareil/index.php?id=72) on 12 October 2008. Retrieved 15 January 2009.
+- External links[[edit](https://en.wikipedia.org/w/index.php?title=Bernard_Stiegler&action=edit&section=17)]
+	- [Stiegler's curriculum vitae](http://arsindustrialis.org/bibliographiebiographie).
+	- [Stiegler's page at Goldsmiths](https://web.archive.org/web/20090609063946/http://www.goldsmiths.ac.uk/cultural-studies/staff/b-stiegler.php).
