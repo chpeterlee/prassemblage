@@ -1,0 +1,1 @@
+- An index correlating exchange value to how much death it will prevent.
