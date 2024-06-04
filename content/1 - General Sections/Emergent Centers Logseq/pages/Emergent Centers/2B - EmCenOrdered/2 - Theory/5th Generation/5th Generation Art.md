@@ -1,0 +1,4 @@
+- [[5th Generation Art]] are based off of Claire Bishop's 4 generations of research-based artworks. They can be conceived of in 3 dimensions:
+	- 1. [[Hyperobjects]] and statistical [[attractor]]s of physio-inferential systems as described by [[Timothy Morton]] and [[Complexity Science]].
+	- 2. [[Semiotechne]] comprised of [[Grammatization]] and [[Exteriorization]] as described by [[Bernard Stiegler]] and [[entropy extraction]] and [[negentropic modelling]] as decribed by [[Erwin Schrodinger]].
+	- 3. [[Assemblage]]s of both [[cosmopolitical]] products and processes as described by [[Manuel DeLanda]], in relation to [[5th Generation Warfare]], [[5th Generation Revolution]] and [[5th Wave Feminism]].
