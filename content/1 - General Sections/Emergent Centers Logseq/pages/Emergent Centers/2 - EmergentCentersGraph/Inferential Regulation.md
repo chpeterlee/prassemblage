@@ -1,0 +1,1 @@
+- [[Inferential Regulation]] uses the [[Open Source Universal Basic Intelligence Communities]] [[Statistical Review Protocol]] to constellate the [[Intercity Planetary [[inference]]r Network]] into an [[[[inference]]nsus]] to regulate inaccurate markets.
