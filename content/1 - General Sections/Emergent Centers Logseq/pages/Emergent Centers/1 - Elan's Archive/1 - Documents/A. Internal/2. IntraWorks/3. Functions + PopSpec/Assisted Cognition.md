@@ -1,0 +1,1 @@
+Assisted Cognition is the term used to describe any number of entities, agents or technologies used to perform probabilistic calculations.
