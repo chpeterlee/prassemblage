@@ -1,0 +1,1 @@
+- An index based on a measurement of [[Inclusive Scalability]] in reality to the cost functions of the [[Gravity Index]] and novel complexification in relation to the [[Assembly Index]].
