@@ -1,0 +1,1 @@
+The law that all things tend towards negentropy over time.
