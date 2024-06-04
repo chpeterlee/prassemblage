@@ -1,0 +1,34 @@
+- # 1. About
+	- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] is composed of distributed human-machine teams of academics, activists, organizers, publics, both human and non-human coordinating public knowledge production towards maximum inclusive scalability for the actual majority of the planet.
+	- Inferences within this public knowledge system are graded in a spectrum:
+		- Unverified
+		- Verified
+		- Research-grade peer reviewed
+		- Statistically reviewed and proofed.
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] hosts various publications, from small press publications to peer-reviewed journals.  It is based on an open-source cloud and AI-based [[inference]] and claims knowledge management system using a custom blockchain protocol.
+- ---
+- # 2. Principles
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] operates off of philostatistical proofs that both physical and informational systems are composed of [[inference]]s which can be verified according to the statistical mechanics of quantum photons, matter and [[potential energy systems]] in relation to the dynamics of Earth's gravitational systems.
+	- The language and mediation methods deployed by the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]] is based on assumptions that 70% of modern populations are functioning with high-school level literacies, 29.9% of the population comprising professional specialists have high-school level literacies and a few related specialized skills and roughly .1% or less of the population have polymath grade literacies and skills.
+- ---
+- # 3. Method
+	- There are 3 major verification processes of the [[SRP]] used to triangulate verification of strong [[inference]]s:
+		- Physical evidence.
+		- Simulations of philostatistical models.
+		- AI-aided search and strong [[inference]] of existing datasets.
+	- Unless a particular page is marked as having undergone peer review and follows publishing standards, it is not considered to be of peer-reviewed quality.
+- ---
+  id:: 9228ab78-70e6-4c33-9e91-7a529abbea4b
+- # 4. Partners
+	- Selected partners from the [[Superpositional Network]] include:
+		- George Mason University
+		- Syracuse University
+		- Florida International University
+		- Izmir University
+		- Rijksakademije
+		- BARCS
+		- Provisions Library
+- ---
+- # 5. Metrics
+	- [[inference]]s can be measured via the [[Inclusive Scalability Index]].
+- ---
