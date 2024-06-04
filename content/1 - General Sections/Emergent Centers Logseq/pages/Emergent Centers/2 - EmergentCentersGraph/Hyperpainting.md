@@ -1,0 +1,22 @@
+- ---
+- 1. Definition
+- A notion of painting based on Timothy Morton's concept of the [[Hyperobject]], which is an [[Assemblage]] object comprised of inferential links across time, space and other materials.
+- The [[Hyperobject]] has similar connotations as [[hypertext]] and [[hyperlinks]], the foundation of the [[bilinking]] system which this graph database uses.
+- ---
+- # 2. Applications
+- The concept of the [[Hyperpainting]] can recontextualize both physical and informational forms:
+	- [[Sol Lewitt]]'s instructional drawings, [[Yoko Ono]]'s poems, [[Fluxus]] based conceptual work, along with media and performance-based works from the late 90's and early 2000's such as [[Yes Men]] and [[Floating Lab Collective]] amongst others.
+	- [[Hyperpainting]] can be used to also materially ground long-standing conceptual art practice s such as [[Duchamp]]'s appropriative methods, along with various conceptual photographic and conceptual video art practice s - and even conceptual painting and drawing practice s such as [[De Kooning]], [[Robert Rauschenberg]] and [[Cy Twombly]].
+	- Other media, from painting to film to social practice , games and any philostatistical, computational or physical system can be recontextualized as hyperpantings.
+	- Ultimately, hyperpainting understands all things as autodidactic neganthropic inferential [[feedback systems]] composed of [[quantum photon]] s.
+- ---
+- 3. Source Contexts
+	- {{embed  ((((e68ac11b-81b4-4c75-85f1-747b1fede6a1))))}}
+	  id:: 56046f42-7d7b-4809-ba57-9ca083371e29
+	-
+- ---
+- 4. Multi-cast Distribution
+- {{embed  ((Multi-cast Distribution:))}}
+- ---
+- 5. Statistically Reviewed Metrics & Markets
+- {{embed  ((Statistically Reviewed Metrics & Markets:))}}
