@@ -1,0 +1,1 @@
+- A presidential campaign run by Captain Amasia on the claim that it is the "Least Stupid". Anyone can bet for or against the [[accuracy]] of this claim.
