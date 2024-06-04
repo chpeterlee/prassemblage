@@ -1,0 +1,1 @@
+- Accurate collar refers to the work of an [[Assayer]], one who verifies the accuracy of an [[inference]], which may or may not be a price.
