@@ -1,0 +1,1 @@
+- A prosocial critical cake is a visual metaphor for an [[Assemblage]] of [[inference]]s which can produce a net neganthropic effect on multiple scales of society.
