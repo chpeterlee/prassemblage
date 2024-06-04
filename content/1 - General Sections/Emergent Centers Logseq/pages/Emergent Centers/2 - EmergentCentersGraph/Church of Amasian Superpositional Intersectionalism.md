@@ -1,0 +1,4 @@
+- on [[April 6th, 2023]] you used [[Similar Pages extension]] to link Postworkverse Church to [[Quantum Datasets]]
+- The [[Postworkverse Church]] is a performative church which incorporates Amasian Superpositional Intersectionalist culture - any quantum-aware and inclusively scaleable cultural practice  stemming from the supercontinent of Amasia that all continents are merging into. Due to its incorporation of conceptual art and cosplay, members are allowed to create and discard praxes and concepts at will with respect to inclusive scaleability.
+- Much of it's concepts and practice s pull from [[Quantum Modernism]], influenced by [[Quantum Occupy]] who's foundational concept stems from [[Quantum Datasets]].
+- Quantum mechanics are not exclusionary or unscaleable; they have been found to be taught in rural high schools to students.
