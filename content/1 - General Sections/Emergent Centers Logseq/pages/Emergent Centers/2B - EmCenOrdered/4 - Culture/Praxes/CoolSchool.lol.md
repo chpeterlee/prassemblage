@@ -1,0 +1,1 @@
+- see [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Praxes/Cool School]]
