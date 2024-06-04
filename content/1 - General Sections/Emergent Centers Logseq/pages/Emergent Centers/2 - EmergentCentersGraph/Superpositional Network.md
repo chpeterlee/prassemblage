@@ -1,0 +1,51 @@
+- ---
+- # 1. About:
+	- The [[Superpositional Network]] is a production, verification and distribution network utilizing the quantum internet and other technologies to rapidly distribute [[Inclusively Scaleable]] systems.
+	- The [[Superpositional Network]] operates through 3 layers:
+		- [[persistent state]] inference-based partnerships
+		- Human-machine teams and proxies
+		- Inclusive scalability verified via [[Statistical Review]]
+	- The Superpositional Network is a [[persistent state]] [[inferential network]] that uses humans, a network of [[quantum simulator]]'s, and AI connected via [[Web 3+]] to distribute across multiple inferential networks. 
+	  
+	  The [[inference]]s' accuracy are constantly reweighted towards [[net negentropy]] in a system comprised of humans collaborating with AI parameterized on the latest versions of [[Open Source Universal Basic Intelligence Communities]] [[SRP]] protocol valued against the [[INF]]'s [[Accurate Market]] matrice.
+	- 1. Inferential discussions are held across the planet through various networks and platforms. For security reasons, the bulk are not stored directly in this database, but are inferentially linked.
+	  id:: edc97745-0ebc-4e1c-b545-a1dd0b7c454f
+		- [[Art Genres]]
+		- [[Paradigm Shift Art]]
+			- {{embed  ((fdc9d449-9fb6-4d9e-a2ed-bf9fec88dc43))}}
+		- [[Paradigm Shift Art Prize]]
+		- [[Accurate Fiction]]
+		- [[Assayer]]
+		- [[Artists]]
+- ---
+- # 2. Application:
+	- Discussions are [[inference]]d into [[Superpositional Network]] members, human and non-human, across the planet, producing a network of [[Grey Papers]] which allow for more accurate [[inference]] of [[net negentropy]] of various scales of the [[Intercity Planetary]] in accordance to the physical rates of change compiled in the [[Open Source Universal Basic Intelligence Communities]]' [[:#[[Intercity Planetary Almanac]]]]. The discussions are [[inference]]d via [[State Space Exhibitions & The Impossible Embassy]] with non-human intelligences aggregating and synthesizing across datasets.
+		- [[Grey Papers]]
+		- {{embed  ((((547b3fb9-3c09-48e0-80a3-d50775c6b481))))}}
+- ---
+- # 3. Methods
+	- Various [[inference]]s, in the form of exhibitions, cinema, essays and documentation are dIstributed via the [[7. Inferential Press Net & [[inference]] Web]].
+		- {{embed  ((444ada69-4fa2-4bad-94cf-4e0bd02b862c))}}
+- ---
+- 4. Statistical Review & Distribution:
+	- Multiple "greylists" are [[inference]]d across the planet via different sections of [[Gen N (Generation Negentropy)]] , to aim proportional social and legal pressures upon negligent individual private and public actors for specific contracts.
+		- [[The Amasian Post]]
+		- [[Most Sus]]
+- ---
+- # 5. Metrics & Arbitration:
+	- Inferences are weighed against the [[Inclusive Scalability Index]].
+- ---
+	- Notes
+		- Video Essay : "An Inferential Letter to the [[Neganthropocene]] Summit From the 2122 Future Nobel Prize Committee"
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2F3NMzTxMzth.png?alt=media&token=5d300c0d-e373-47d1-b34a-a397250ab96b)
+			- https://www.instagram.com/tv/Ca8QHdkFK8A/?utm_source=ig_web_copy_link
+		- The Impossible Embassy
+		- **The 100 Year Plan Dialogues**
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2FWLH1GQPk6T.jpg?alt=media&token=b38e3a85-e95c-4b83-b467-890d35235651)
+			- <<:: **AI Composed Raw Synthesis:** ::>
+			- 1. **Capitalism is an in[[accurate]] market dependent on the suppression of information to perpetuate unsustainable inequities.**
+			- 2. An [[accurate]] market would require a social floor composed of both private and public organizations producing mixed implementations of universal basic income, health care, arts-based education, infrastructure, maximum 20 hour work-weeks.
+			- 3. Only [[3.5%]] of a population is required to make a political change. Different is more.
+			- 4. Political change can be rapidly scaled by synthesizing new artistic, philosophical, scientific, technological and cultural tools; there are currently 50 billion bots existing and recently new mixtures of the sciences and humanities have settled questions over a millennia old which allow for a transparent and equitable planetary market.
+			- 5. The design and implementation of an [[accurate]] market is worth a minimum of $1 trillion which can be owned as a co-op, producing almost infinite “[[accurate]] Collar” jobs in regional economies producing 80% information and culture, 20% material recombination and measurable endpoints of net zero emissions, 88% equality across the region, and intellectual ecologies which can at minimum produce 1 planetary-scale paradigm shift per 7 years.
+	- {{embed  ((((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))))}}
