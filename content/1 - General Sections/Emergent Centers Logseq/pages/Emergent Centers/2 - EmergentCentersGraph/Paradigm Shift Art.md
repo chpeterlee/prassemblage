@@ -1,0 +1,1 @@
+- Paradigm Shift Art, or sometimes referred to as [[P.O.P.S. Art]], is an art movement which references the [[Universal Attractor]], a universal statistical law to measure the scale of a [[paradigm shift]] and its cost/effect ratio, also known as its [[Antifragility]].
