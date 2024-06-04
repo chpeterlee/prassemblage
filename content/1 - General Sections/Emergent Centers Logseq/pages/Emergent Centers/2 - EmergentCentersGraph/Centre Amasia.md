@@ -1,0 +1,8 @@
+- A planetary cultural center that [[inference]]s its physical relation to the current leading points of intellectualism on the planet. Currently in 2022, this is in Berlin and Iran. It [[inference]]s and abducts data across the planet via the [[SRP]] protocol through many existing cultural projects, including the [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]].
+- It has 5 core assemblage magazines it is constructing in partnership with [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]]:
+	- #[[The Art of Peace]]
+	- [[Until We Are Worth More Than Gold (Main)]]
+	- [[Marrying the B.O.S.S. (Bank of [[Selma Selman]])]]
+	- [[100 Years of Nonlinear Future History]]
+	- [[Geothermalpedia]]
+-
