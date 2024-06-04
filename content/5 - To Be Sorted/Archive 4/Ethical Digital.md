@@ -1,0 +1,27 @@
+
+
+
+
+
+
+
+
+## Regional Ethical Digital (R.E.D.): a sustainable,  inclusive and scalable approach to today's region-scale systems.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
