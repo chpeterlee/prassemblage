@@ -1,0 +1,23 @@
+- ---
+- # 1. About
+	- Welcome to the Superpositional Gallery. Throw things in here to record their transfer. Use your own value systems to create new transactions.
+	- By default, the Superpositional Gallery uses the [[ESTA Certified]] [[Inclusively Scaleable]] [[Ideation Co-op]] [[Quantum-Aware]] NFT Valuation System.
+- ---
+- 2. Applied Contexts
+	- 1. All Superpositional Gallery NFT's are subject to value fluctuations in which the NFT's construct a situational price biased towards [[Inclusively Scaleable]] (or [[antifragile]]) price points.
+	- 2. All Superpositional Gallery NFT's are distributed in relation to past, present, possible inequities, ideation, labor, partnerships and novel information.
+	- 3. All Superpositional Gallery NFT's incorporate ecological, social, technological and artistic impact metrics measurable through non-linear metrics and quantum-balanced datasets.
+	- 4. All Superpositional Gallery NFT's are composed of multiple currencies, including novel non-standard currencies constructed solely of quantum-aware information.
+	- 5. A portion of Superpositional Gallery NFT's are designated for the [[Planetary Research Assemblage]] in accordance to [[Quantum-Aware Authorship]] in which disputes are always settled to most inclusive scaleability, always distributing resources in relation to past, present and possible inequities, ideation, labor and partnerships. In general, disputes and settlements occur in 3 month periods, arbitrated by the [[Ethical Futures Institute]] according to the [[Intercity Planetary]] market standards. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]] is currently the leading organization arbitrating transactions according to these standards.
+- ---
+- 3. Source Contexts
+	- 6. The [[New S.A. Gameseum]] and [[Amasia.live]] are quantum-aware media networks which produce and house arts, media and educational content - both by professionals and amateurs. These networks are integrated through the quantum-aware art games of [[Flick Capitalism]], [[Philosomon]] and the quantum-aware puppet and NFT co-op of [[ESTA]].
+	- 7. The [[Postworkverse Church]] is an arts-based faith which is designed to be an umbrella shelter for all existing minoritarian cultures and practice s while also protecting the core mechanism of the individual capacity to recombinate novel [[Inclusively Scaleable]] relations via conceptual art. It's operating procedures pull from [[Quantum Modernism]] as demonstrated by the [[Superpositional 7]].
+	- 8. The [[Superpositional 7]] and [[Quantum Modernism]] pull from the [[Quantum Occupy]] movements based on the practice  of using [[Quantum Datasets]] to encompass and balance existing classical datasets towards the [[Inclusively Scaleable]] tendencies of all physical and informational systems who's quantum components constantly negate the possibility of light speed collapse of the entire universe from [[vaccuum decay]]. They objectively bias towards more [[Inclusively Scaleable]] relations. In this manner, a [[polymath]] can articulate a solution to [[solar change]]. A [[polymath]] can be differentiated from a [[generalist]], a [[specialist]], and a direct or indirect [[participant]]. All are viewed as [[ideators]] and are compensated as such in an [[Ideation Co-op]] in an [[Inclusively Scaleable]] manner.
+- ---
+- 4. Multi-cast Distribution
+- {{embed  ((16d084a1-3a41-4546-917a-0be3b21a5334))}}
+- ---
+- 5. Statistically Reviewed Metrics & Markets
+- {{embed  ((305e57b6-f132-44ad-b526-c548323604ee))}}
+- ---
