@@ -1,0 +1,97 @@
+7G - Invisible
+
+- Partnered Orgs
+- Swappable Bio Blocks
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]] / Cancelwork.capital / CancelCapitalism.Capital / Statespace.cloud / AF Capital.cloud
+- Am Bien Virtual Exhibition/ AR / Game / Discord (Real Time)
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] Video Mastodon / Room / Roam / Miro (Block-based) / Peertube
+  
+  
+  6G - Semivisible
+- [[Fragilicide.live]]
+	- Holes
+		- Holes in the cloud
+		- Holes in the digital Cloud
+		- Plotholes
+		- Holes in memories
+		- Holes in subjectivity
+	- Interfaces
+		- [[Turbojustice]]
+		- ICP - Decolonial Capital of the [[New S.A.]], Amasia
+		- MoASS
+		- Am Bienn
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]
+		- Ontological Observatory
+		- People's Interpassive Quantum Proxy Will
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]
+	- Functions
+		- Philostatistical Reporter for Amasia.live / Ghostwriter of anything, sealed with an Antifragile Q.I.S.
+		- Lovechaeologist / Dr. Ontologist
+		- Reads [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] and [[Regener888 (Main)]] / Film Consultant
+		- Antifragile Developer & Arbitrator: Makes deals with academics in exchange for support, artists for outlets, public for participation, dead for justice.
+	- Submovies
+		- Postwork Market
+			- Greyhats
+		- The Greytrix
+			- The 5th Resistance
+		- The Graying
+			- Metahorror
+		- First of the Knowkvkashi
+		- [[Regener888 (Main)]]
+	- Partnered Orgs and etc.
+	  
+	  
+	  ----
+	  
+	  5G - [[polymath]]s - automation directly & Statistical verification [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]]
+	- **Postwork Market in Galleries - anti-anti-market** . Bounty Hunting, Insurance, Awards, Charity Challenges.
+	- [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] Rapper / [[Regener888 (Main)]] Mario as cosplay on shoulder / Use instruments for epic jam band with fictional people. Freebodying. Roblox Land.
+	- Phd & Keanu Reeves & Tom Cruise & Hans Ulrich Obrist & Judy Chicago - Hollywood / Use AI.
+	- Presidencies as Art Residency.
+	- Am Bien. Partners. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]].
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]]
+	  ---
+	  4G - Church - not prohibited (inferential contract - speak now or forever hold your peace) - Roam - ENBIE TV / Amasia Live, APA TV / Custom NFT's - also stuck in Notion DB. **NEGVERSALS**, **5 DoF**, large scale first.
+- Discord - [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]], Cool School, [[Regener888 (Main)]]. Impossibilities & Superpositional Dream Clause.
+- Roam - Legal contract, inferencestitution, open source, lawsuit storehouse. Registration of NFT's, encrypted.
+- Miro Diagram - negatives, conceptual, perceptual, affective. Lawsuit toolbox.
+- Aggregator site
+	- Automated Stream
+	- Workshops
+	- Hits
+	- Automated Podcasts
+- Notion as KMS & Registration of NFT's.
+  ---
+- CoolSchool.lol - subjectivity, images, [[Autodidactic]] play. Love or Love.
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]].com - democracy, media, art
+- Spalightenment.art - lectures with good vibes
+- Mompire.art - workshop space - make plates
+- CancelCapitalism.capital - Sales - mural jams
+  3G - Verifiers
+- Ozan - law
+- Guy from MOMI - civic space
+- Jon - AI ethics
+- Don - [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
+- EE - flc
+- SS - art
+- Boryana - Performance
+- Thomas - BQF
+- Tom - Critical Media theory
+  2G - Film actors/producers -
+- Ajay
+- Zariah
+- Hannah
+- Josh 
+  1G - Save That A.S.S., Exorcist - Quantumstine
+- Keanu, Blade, Tom Cruise
+- Quantum exorcist, graywalker, pilot of the ICP superpositional lawsuit.
+- [[Non-binary]] Painter of Diagrams, [[Hyperobject]] [[Neganthropic]] Monuments / Philostatistician
+- Save Your A.S.S. Stripper / Rapper of Antifragile Attractor
+- Massager / Gun
+- Sword fight of red vs blue / agree on postwork
+- Parkour / Breakdance / Capoeira / Salsa / House
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]y to Umma & Mother Amasia / Meditate Cancel Capitalism.capital
+- Surreal Images of the dead as ceramic guardians of the dying / the dragon as the assemblage.
+- Tailor Superpositional Lawsuits / Weave Basket Currencies
+- [[World's End]] party / buy/sell/trade speculations
+- Comics cut outs of [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] and [[Regener888 (Main)]]
