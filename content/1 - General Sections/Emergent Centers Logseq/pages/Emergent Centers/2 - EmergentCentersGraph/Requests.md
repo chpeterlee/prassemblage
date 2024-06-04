@@ -1,0 +1,6 @@
+- Requester: [[Selma Selman]]
+	- Women and beauty and power and money.
+		- ![Audre Lorde](https://images.gr-assets.com/authors/1613651890p4/18486.jpg)[🔗](https://www.goodreads.com/author/show/18486.Audre_Lorde)
+		- “For the master’s tools will never dismantle the master’s house. They may allow us to temporarily beat him at his own game, but they will never enable us to bring about genuine change. Racism and homophobia are real conditions of all our lives in this place and time. I urge each one of us here to reach down into that deep place of knowledge inside herself and touch that terror and loathing of any difference that lives here. See whose face it wears. Then the personal as the political can begin to illuminate all our choices.”
+		- “The master’s tools,” [[Audre Lorde]] (1984) famously said, “will never dismantle the master’s house.” Her statement was a provocation to Western feminists to question their own racism and homophobia, to examine the “terror and loathing of any difference that lives” inside each of us. “What does it mean,” she asked, “when the tools of a racist patriarchy are used to examine the fruits of that same patriarchy? It means that only the most narrow parameters of change are possible and allowable.”
+		-
