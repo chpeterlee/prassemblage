@@ -1,0 +1,3 @@
+- grab all encrypted notes
+- remove periods - change to dash
+- get mass file renamer
