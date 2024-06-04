@@ -1,0 +1,1 @@
+- An inferential network is a network comprised of [[inference]]s , or datapoints, which be can qualified to be more or less accurate in relation to its probability or improbability within a given set of defined conditions.
