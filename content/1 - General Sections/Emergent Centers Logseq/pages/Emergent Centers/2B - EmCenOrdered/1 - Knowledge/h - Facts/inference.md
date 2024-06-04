@@ -1,0 +1,35 @@
+- ---
+- 1. Intro
+- An [[inference]] is a datapoint, or a hypothesis, which is always in relation to other existing datapoints. 
+  
+  [[inference]]s can be qualified to be more or less accurate which can be quantified as more or less probable in relation to a defined set of circumstances, or a [[State Space AI]]. A simple way to grasp what a [[State Space AI]] is, a set of probabilities, is to think about how baseball player statistics are made of a collage of probabilities - or the weather report.
+- ---
+- 2. Applied Usage
+- Timothy Morton on [[inference]]:
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FfMfj3qbReR.png?alt=media&token=d3059e5e-485a-46f7-a413-958813b524aa)
+	- https://www.hcn.org/issues/47.1/introducing-the-idea-of-hyperobjects
+- [[inference]] in biology:
+	-
+- [[inference]] in technology:
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2Fipu3BjdSEC.png?alt=media&token=847df1ea-82ab-48d6-94be-f2a1720d0775)
+	- https://blog.innodisk.com/what-[[inference]]-means-in-artificial-intelligence-and-why-you-should-use-it/
+- [[inference]] in art:
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FqTNfGRXOZ7.png?alt=media&token=b904d58e-8d8f-4fe5-b9d2-aa662b9c4608)
+	- Michael Snow (Objects of Vision)
+	- Lawrence Weiner (As Long as it Lasts)
+	- Jean-Luc Godard (French New Wave)
+	- Pi (brain scene)
+- [[inference]] in culture:
+	- Hip Hop
+	- Dating
+- [[inference]] in commerce:
+	- Double book keeping
+	- Mathematics
+	- Performance
+- [[inference]] in non-modern traditions:
+	- Buddhism (Inferential Cognition)
+- ---
+- 3. References
+- From Wikipedia:
+	- **[[inference]]s** are steps in [reasoning](https://en.wikipedia.org/wiki/Reasoning), moving from [premises](https://en.wikipedia.org/wiki/Premise) to [logical consequences](https://en.wikipedia.org/wiki/Logical_consequence); etymologically, the word __[infer](https://en.wiktionary.org/wiki/infer)__ means to "carry forward". [[inference]] is theoretically traditionally divided into [deduction](https://en.wikipedia.org/wiki/Deductive_reasoning) and [induction](https://en.wikipedia.org/wiki/Inductive_reasoning), a distinction that in Europe dates at least to [Aristotle](https://en.wikipedia.org/wiki/Aristotle) (300s BCE). Deduction is [[inference]] [deriving](https://en.wikipedia.org/wiki/Formal_proof) [logical conclusions](https://en.wikipedia.org/wiki/Logical_consequence) from premises known or assumed to be [true](https://en.wikipedia.org/wiki/Truth), with the [laws of valid [[inference]]](https://en.wikipedia.org/wiki/Rule_of_[[inference]]) being studied in [logic](https://en.wikipedia.org/wiki/Logic). Induction is [[inference]] from [particular](https://en.wikipedia.org/wiki/Particular) premises to a [universal](https://en.wikipedia.org/wiki/Universal_%28metaphysics%29) conclusion. A third type of [[inference]] is sometimes distinguished, notably by [Charles Sanders Peirce](https://en.wikipedia.org/wiki/Charles_Sanders_Peirce), contradistinguishing [abduction](https://en.wikipedia.org/wiki/Abductive_reasoning) from induction.
+	- Various fields study how [[inference]] is done in practice . Human [[inference]] (i.e. how humans draw conclusions) is traditionally studied within the fields of logic, argumentation studies, and [cognitive psychology](https://en.wikipedia.org/wiki/Cognitive_psychology); [artificial intelligence](https://en.wikipedia.org/wiki/Artificial_intelligence) researchers develop automated [[inference]] systems to emulate human [[inference]]. [Statistical [[inference]]](https://en.wikipedia.org/wiki/Statistical_[[inference]]) uses mathematics to draw conclusions in the presence of uncertainty. This generalizes deterministic reasoning, with the absence of uncertainty as a special case. Statistical [[inference]] uses quantitative or qualitative (categorical) data which may be subject to random variations.
