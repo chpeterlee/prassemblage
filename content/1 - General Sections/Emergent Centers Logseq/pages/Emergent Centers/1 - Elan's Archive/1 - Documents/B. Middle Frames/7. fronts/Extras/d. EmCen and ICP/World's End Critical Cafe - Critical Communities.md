@@ -1,0 +1,3 @@
+1. Critical conversation is a game of claims played with words, images, multimedia and physical reality. 
+2. Claims can be qualified in terms of comparative accuracy. Accuracy of claims transcends genre of mediation.
+3. No single emotion, identity or method of mediation adds or decreases accuracy to a claim; this also means that emotion, identity and novel modes of mediation can be and/or improvised without adding or decreasing the accuracy of a claim.
