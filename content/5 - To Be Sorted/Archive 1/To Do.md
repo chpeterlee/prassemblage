@@ -1,0 +1,7 @@
+- **Check Laptop at USP**
+- Do a run through the book money.
+- **Call Cleveland Clinic, find room number
+- **Get Car Exhaust Checked.**
+- 8PM eloquist
+- Michano Cat Research
+- 
