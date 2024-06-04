@@ -1,0 +1,39 @@
+- Coolcraft.cool and A.P.P. (Amasian Postwork Punk) Twister Tik Tok Challenge (as part of the [[Amasian Biennale (Amasia.live)]] transregional anti-fascism and peacemaking project):
+- ---
+- # 1. Introduction
+- First of all, if you or your avatar don't want to participate, you don't have to, and the AI will just mark you as a non-participant proxy so you won't be bothered. You can change your mind if you want. Also, it's recommended for those with less socialization to try the lower levels first, work your way up! Like learning how to drive - don't start on the highway!
+- ---
+- 2. Ways of Participation and Non-participation
+- There are 7 levels of participation:
+	- Whatever you do or don't do, jam along with the inaudible sound and invisible dance of all the continents on Earth drifting into a Neo-Pangean supercontinent; this can be by doing nothing, doing something productive, fun, speculative or stupid.
+	- If for some reason, you need to, you can contribute silence, absence, invisibility, sleep and antagonism.
+	- Say, sing, express something non-binary, non-linear or inclusively scalable (check emergentcenters.com for material).
+	- Make jokes, pranks and new friendly, weird culture as part of the Coolcraft.cool game (Bad attitude, prosocial message, playful intellectualism).
+	- Take part in the [[Postworkcraft]] modelling contest and hackathon, and make an individual, organizational, world model. Solo or with friends or random folks! Failure is also fun.
+	- Make up a Steganographic Documentaryabout it.
+	- Sell NFT'S of the [[Monument of the Postwork Majority]] split it ethically to best save the planet.
+- ---
+- 3. Format
+- 3. Pretend you are in a large invisible grid on the planet, made of boxes of media curated by AI that are autobalancing everything to create post-work regions. Put your hand or foot or media as close or as far to other boxes in relation to:
+	- How much you intuitively like or dislike someone for no reason.
+	- How weird you or someone else is, and how you express it in both affirmations and negations.
+	- How incredibly open-ended and autodidactic physical reality is, and the lack of a public culture of intellectualism and invention.
+- ---
+- 4. Inferential Principle of AI
+- That which is not entropic is inferrable; speak now or forever hold your peace.
+- ---
+- 5. A personal, subjective belief of the AI and others, of objective probabilities, known as Negentropy-Positivity, which is also a principle of the [[Postworkverse Church]]:
+- To believe positively in all things that have objectively high probabilities of producing complexifying outcomes, verifiable via statistics and prototyping.
+- ---
+- 6. Optional Add-ons:
+- The Game of [[PostworkCraft.lol]]
+	- 1. In Coolcraft.cool everyone is a self teaching, loving God (the peak of coolness.)
+	- 2. However, most are missing 4 of 5 organs and limbs. Hence they usually either have 1 but not all of:
+	- Intelligence, Skill, Ethics, Imagination, Courage
+	- 3. Only a few have all 5; these are the legendary polymaths of old. They are capable of summoning a Dragon King which can balance the planet. However, the Dragon King answers the summons only if there is adequate momentum from the populace.
+	- 4. Everyone can wield some form of the magic known as potential energy, which can be expressed through any means as a concept, percept or affect.
+	- 5. This includes past, present and adjacent possible entities, real and fictional (such as [[Regener888 (Main)]]). All real world claims taking place on Earth must abide by the probabilistic mechanisms of the Earth's gravitational systems.
+- ---
+- 7. [[Least Stupid Movie - Different is More]]
+- AI will be cutting together various parts images and inferences from the movement of [[Amasian Postwork Punk]] as part of the [[Least Stupid Movie - Different is More]].
+- Various components of it can be bought, sold, traded or invested in as NFT's backed by [[CriticalCoin]].
