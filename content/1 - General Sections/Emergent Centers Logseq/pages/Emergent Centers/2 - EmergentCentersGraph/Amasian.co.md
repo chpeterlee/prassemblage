@@ -1,0 +1,9 @@
+- Amasian.co is a [[Superpositional Market]] which traffics in quantum [[photons]] in varying stages of complexity. All prices are designed to reflect the most up-to-date standards of accuracy as possible, but are always open to modification and negotiation for greater accuracy and greater [[net negentropy]].
+- Current structure:
+	- 1. Accuracy Consultants: [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]] & [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Jon Perez]] & other members of the [[Planetary Research Assemblage]] and [[Superpositional Network]].
+	- 2. Regenerative Domestic Product Manager: [[Amanda Jarvis]] and [[Ozan Atalan (ext)]]]] and [[Endam Nihan]]
+	- 3. Chief Ethics Officer: [[Jean Paul Fartre]] & [[Aida Kahlender]] & [[Sue Wrbican]]
+	- 4. Chief of Collaborative Autodidactic Play: [[Josh Wilcox]] & [[Austin Arrington]] & [[Neven Lochhead]] and other members of the [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]]
+	- 5. Chief Brand Ambassador: [[Selma Selman]] & the [[Impossible Embassy]].
+	- 6. Mompire Advisors: [[Eun Sun Chae]] & [[Courtney Applequist]]
+	- 7. International Consultants: [[Edgar Endress]] & [[Reed Griffith]]
