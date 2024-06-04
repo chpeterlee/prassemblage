@@ -1,0 +1,1 @@
+- A cultural form of wagering where a participant wagers a slap to their own face over a claim.
