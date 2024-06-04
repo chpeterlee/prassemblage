@@ -1,0 +1,2 @@
+- [[Bets Against Entropy]] bet on the fall of a fragile price and the rise of an antifragile value.
+- There is also a [[Bet Against Inaccuracy]] which simply just bets on the accuracy or inaccuracy of [[inference]] or its probability and improbability.
