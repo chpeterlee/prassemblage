@@ -1,0 +1,4 @@
+- An artwork where the audience is asked to compete to define definition itself which:
+- 1. Can be proven to exist by the fact that we use them, and if we didn't have them, there would be no society because it would be like everyone is on a neverending DMT trip.
+- 2. Can be proven to not necessarily require any specific language or medium, but have enough coordination of elements for the parts to be constructed into a concept which can adapt its components to changes in the social and ecological environment.
+-
