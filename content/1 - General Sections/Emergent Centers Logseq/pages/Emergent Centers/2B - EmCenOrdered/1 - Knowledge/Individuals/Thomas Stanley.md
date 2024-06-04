@@ -1,0 +1,14 @@
+- [[7. Inferential Press Net & [[inference]] Web]] Podcast - **3 - 7 - 2022**
+	- https://anchor.fm/amasianpost
+	- artistic
+	- Establishment endorses transgressive ideas
+	- $1 million sound art vs. $3 million Netflix episode.
+	- Deeper penetration -  sound worlds.
+	- 66% Discount on Paradigm Shift and Scale
+	- Internal construction and though construction
+	- Captain Amasia, Superpositional Party, Market valuation.
+-
+- 7/8/2021 - jammed out the idea of connecting bodies together for an interactive installation with [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]].
+- Long-time Quantum Black Futurist.
+- 7/8/2021 - jammed out the idea of connecting bodies together for an interactive installation with [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]].
+- Long-time Quantum Black Futurist.
