@@ -1,0 +1,1 @@
+- A [[paradigm shift]] is the production of a novel net negentropic system state. This can be measured in terms of scale and cost/effect ratio.
