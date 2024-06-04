@@ -1,0 +1,5 @@
+- 1000 peeled off for bets
+- 1000 in the pipe for refund
+- Help find 20 hrs part time non profit job ($16-25/hr)
+- Get it up by end of week.
+- Antifragile Agent P. Roxy and Ozan as[[0-Personal/Antifragile Peter Lee Obsidian/Neganthropomorphosis/pages/Amasian]]Brothers - direct Jon (finds Ozan a job), and Nihan (nihan sells Antifragile Agent P. Roxy's [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] and AF Agency)
