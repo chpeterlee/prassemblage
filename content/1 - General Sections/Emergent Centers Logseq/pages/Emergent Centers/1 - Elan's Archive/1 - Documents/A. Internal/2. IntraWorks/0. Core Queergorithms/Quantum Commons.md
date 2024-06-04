@@ -1,0 +1,1 @@
+Uses shikaakwa decentralized patent system.
