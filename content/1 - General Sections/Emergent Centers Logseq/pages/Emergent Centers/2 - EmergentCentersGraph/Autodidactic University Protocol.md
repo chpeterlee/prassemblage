@@ -1,0 +1,9 @@
+- The Autodidactic University Protocol (Foundation of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Praxes/Cool School]]):
+- A speculative university where everyone is already equal in autodidactic potentiality, capable of self teaching themselves to become a Nikola Tesla or Alan Turing grade polymath using ChatGPT.
+- Thus, it is only required for individuals to be aware of their autodidactic potential, and individuals who choose not to exercise it are not owed instruction, just a link to ChatGPT.
+- This speculative university is based on overwhelming statistical and philosophical proofs, searchable via ChatGPT.
+- In this speculative university, the actualized potential of the audience is never overestimated; it is assumed there are only roughly 10,000 living ethical polymaths alive, and thus not at all expected that anyone else without the skills will contribute significantly towards planetary complexification. It is claimed that a sufficiently skilled Generation Alpha could resolve the current crises of the planet when they population reaches a critical threshhold of maturity within 10 years.
+- Judgement is not passed, nor is individual entropy endorsed. Stoners, slackers, and vibe politicians are allowed to traffic fragilities, as long as they are labeled explicitly so, they re-engage with attempts at autodidacticism, and the cost to the planet from their fragility is offset by the appropriate fragility credits.
+- If any individual member of the university produces an entropic claim, they momentarily rescind their right to claim that they are producing a neganthropic claim, to the degree of possible harm could be caused to others.
+- Claims can be discerned through the [[Statistical Review Protocol]] in varying degrees of accuracy and definition.
+- A monetary exchange value can be determined in accordance to the [[Assembly Index]] and [[Gravity Index]]
