@@ -1,0 +1,57 @@
+- [[🧩 **Planetary Escape Room Game Puzzle Pieces**]]
+	- #Art
+		- **Web 3 - postproduction by Bourriaud**
+			- Postproduction by Bourriaud
+				- https://iedimagen.files.wordpress.com/2012/01/bourriaud-nicholas_postproduction.pdf
+		- **Acid Communism**
+			- Approachable Text:
+				- https://medium.com/swlh/what-is-acid-communism-e5c65ecf6188
+			- Approachable Video:
+				- https://youtu.be/P40tywbPEtg
+	- #Philosophy
+		- Derrida
+		- Laruelle
+	- #Science
+		- **Adjacent Possibility (Stuart Kauffmann)**
+			- https://www.youtube.com/watch?v=AEeBbpkDDB0
+		- **Perspectivism (Viveiros de Castro & edward p. butler)**
+			- Eduardo Viveiros de Castro
+				- https://www.youtube.com/watch?v=py2GcKy2yo8
+				- https://www.youtube.com/watch?v=cNTdIG-Z_ho
+			- Edward P. Butler
+				- https://www.youtube.com/watch?v=wvExsiOXKxQ
+		- **Truthcoin: **
+			- https://www.truthcoin.info/papers/truthcoin-whitepaper.pdf
+	- #SocioPoliticalCulturalHistory
+		- **Proxy Politics by Hito Steyerl:**
+			- https://www.e-flux.com/journal/60/61045/proxy-politics-signal-and-noise/
+		- Games
+			- mckenzie wark
+	- #EcoSocialTech
+		- ****Manuel De Landa Meshwork Hierarchy & Interfaces****
+			- Limits of interfaces: http://www.t0.or.at/delanda/meshwork.htm
+		- Simulated Meshworks by De Landa
+			- https://journals.uvic.ca/index.php/ctheory/article/view/14560/5406
+		- Building off Bourriaud's well known art theoretical text of "Postproduction" regarding underground musical praxes such as DJ'ing, crate digging and flea markets - Web 3 art embraces linking, messaging, screenshotting, posting, reposting, sharing, recommending, aggregating, databasing, automating, commenting, copy and pasting as an act of planetary collage, or as the darkweb artists now call it and the original web engineers called it- "Transcluding".
+			- This also has a close association with the logic of "transduction" by [Bernard Stiegler](https://en.wikipedia.org/wiki/Bernard_Stiegler) which is supported by [quantum biology](https://www.youtube.com/watch?v=Zc9Xk99gCr4).  🔬
+			- This is an understanding that every single motion within the universe, including human thought and [[backlinking a computer database through this web 3 interface]] - every single motion is a one-shot recombinatory operation of the same universal physical matter - quantum chemistry. ✨.
+			- Web 3 art recognizes that the majority of the internet is built simply upon hashtables in which data is flat and absolutely interconvertible. A post, a [[backlink]] , a click an 🥑emoji - are the same as a comment as a video as a machine learning data set which ultimately share the same base quantum chemical components as every other part of the universe. 🌌
+			- Thus, as Web 3 art is articulated, it is aware of its advantages over web 2 and already fully aware of its coming obsolesence to Web 4 - the quantum internet.
+- **Proxy**
+- Launching a children's art game to make the planet better and more fun and safe for children, working with children is advised.
+- 1. Climate-fiction + Jacques Fresco + endpoints + 10 year Carbon Neutrality time limit until irreversible ruin. Bonus points for more lives saved with less destruction. 12,000 kids die per day, 90,000 people displaced per day.
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2Fweb3_playlightenment_com%2FtcO2NGUuzu.jpg?alt=media&token=c9a8704e-55e3-4ec7-8dde-2d81c72d612c)
+- 2. Inventory of pieces
+- 3. Mutual Aid Actions:
+	- 1. Co-Learning/Co-onboarding
+	- 2. Co-Speculating/co-tinkering
+- 4. Web 3 Technologies
+	- 1. Language
+	- 2. Math
+	- 3. Performance
+	- 4. Art
+- 5. Map of fascists vulnerabilities and etc at 4 scales.
+- 6. Things that have and have not worked in history
+- 7. Who the fuck is the 7th Swan and why is he saying to win fully escape, we need a Web 4 artwork?
+- 8. Endpoints - Carbon Neutrality, 0 kids dying and people displaced, Gini Coefficient of 0.12. Evaluate scale of efforts
+- Embed XR
