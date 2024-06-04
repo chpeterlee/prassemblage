@@ -1,0 +1,1 @@
+- A weekly show of free art assignments that produce the book - [[9. 100 Years of Non-linear Future History & Geothermalpedia 6000]]
