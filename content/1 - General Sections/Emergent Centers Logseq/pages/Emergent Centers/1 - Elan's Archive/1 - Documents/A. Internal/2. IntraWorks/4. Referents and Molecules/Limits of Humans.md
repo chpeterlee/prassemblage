@@ -1,0 +1,6 @@
+- 99.9% have low accuracy beyond line of sight.
+- 7 second short term memory
+- 7 minute lessons
+- 2-3 premises per day.
+- 7 week episodes
+- 7 year changes
