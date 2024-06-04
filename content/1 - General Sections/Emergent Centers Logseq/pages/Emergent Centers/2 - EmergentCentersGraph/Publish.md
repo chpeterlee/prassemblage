@@ -1,0 +1,68 @@
+- #Publish tag (to remember how to publish)
+	- 1. General:
+		- For general theoretical speculation: criticalplay
+		- For general cultural jamming: sayless
+		- {{embed  ((((3b88455c-8700-4287-bfcf-f93bc2fc80d5))))}}
+	- 2. Podcasts
+		- For critical play podcasts: criticalplaypodcast
+		- For say less podcasts: saylesspodcast
+		- {{embed  ((((3b88455c-8700-4287-bfcf-f93bc2fc80d5))))}}
+		-
+	- 3. Art
+		- For critical play art: #criticalplayart
+		- For say less art: saylesspodcast
+		- {{embed  ((((3b88455c-8700-4287-bfcf-f93bc2fc80d5))))}}
+		-
+	- 4. Scrapbooks
+		- For critical play scrapbooks criticalplayscrapbook
+		- For say less scrapbooks saylessscrapbook
+		- {{embed  ((((3b88455c-8700-4287-bfcf-f93bc2fc80d5))))}}
+		-
+- #Publish tag (to remember how to publish)
+	- 1. General:
+		- For general theoretical speculation: criticalplay
+		- For general cultural jamming: sayless
+		- [[Navigation Blocks]]
+			- #Tagindex block of all the tag methods
+				- {{embed  ((((2c45e2d3-4720-4a96-9371-95dbba1acf75))))}}
+				- Unsorted Tag Methods
+			- {{embed  ((((88cddc8c-4dab-40e4-9149-365eee41c5b1))))}}
+			- {{embed  ((((b9920960-349c-497d-a574-25f8206a838e))))}}
+			- {{embed  }}
+			- More possible :)
+	- 2. Podcasts
+		- For critical play podcasts: criticalplaypodcast
+		- For say less podcasts: saylesspodcast
+		- [[Navigation Blocks]]
+			- #Tagindex block of all the tag methods
+				- {{embed  ((((2c45e2d3-4720-4a96-9371-95dbba1acf75))))}}
+				- Unsorted Tag Methods
+			- {{embed  ((((88cddc8c-4dab-40e4-9149-365eee41c5b1))))}}
+			- {{embed  ((((b9920960-349c-497d-a574-25f8206a838e))))}}
+			- {{embed  }}
+			- More possible :)
+		-
+	- 3. Art
+		- For critical play art: #criticalplayart
+		- For say less art: saylesspodcast
+		- [[Navigation Blocks]]
+			- #Tagindex block of all the tag methods
+				- {{embed  ((((2c45e2d3-4720-4a96-9371-95dbba1acf75))))}}
+				- Unsorted Tag Methods
+			- {{embed  ((((88cddc8c-4dab-40e4-9149-365eee41c5b1))))}}
+			- {{embed  ((((b9920960-349c-497d-a574-25f8206a838e))))}}
+			- {{embed  }}
+			- More possible :)
+		-
+	- 4. Scrapbooks
+		- For critical play scrapbooks criticalplayscrapbook
+		- For say less scrapbooks saylessscrapbook
+		- [[Navigation Blocks]]
+			- #Tagindex block of all the tag methods
+				- {{embed  ((((2c45e2d3-4720-4a96-9371-95dbba1acf75))))}}
+				- Unsorted Tag Methods
+			- {{embed  ((((88cddc8c-4dab-40e4-9149-365eee41c5b1))))}}
+			- {{embed  ((((b9920960-349c-497d-a574-25f8206a838e))))}}
+			- {{embed  }}
+			- More possible :)
+		-
