@@ -1,0 +1,37 @@
+- The Intercity Planetary is an inferential [[persistent superpositional state]] produced and engaged in by both human and non-human agents, which is always aimed towards greater [[accuracy]] of computing negentropy with least time complexity through the inferential synthesis of multiple computational tools, both digital and non-digital.
+- ----
+	- Notes
+	- The Intercity Planetary is an inferential [[persistent superpositional state]] produced and engaged in by both human and non-human agents, which is always aimed towards greater [[accuracy]] of computing negentropy with least time complexity through the inferential synthesis of multiple computational tools, both digital and non-digital.
+		- An open source history is currently being assembled that is anchored in the pivotal moment of the 15th Century when capitalism was invented at the same time a planetary network of intellectuals had finished writing the solution to it.
+			- [[Teotihuacan]] - a 2nd Century Incan society in Mexico which achieved an 88% equality rating calculated via the Gini Coefficient, with a population density higher than that of modern day London.
+			- [[15th Century China]]
+			- [[Caucasus Region]]
+			- It's present is described as [[The Tragedy of the Middles]] and it's future lies in deathproof cities.
+	- The [[Intercity Planetary]] is a quantum-aware network and transactional guide to incorporate the most inclusively scaleable practice s spanning urban, agricultural and nomadic regions. It is updated every 3 to 4 months.
+	- 1. History of the Intercity Planetary
+		- 2nd century Teotihuacan skilled trader population
+		- 15th Century China Distributed Regional Governance and hybridized skills via media
+		- 15th Century Edo Japan blossoming of experimental culture
+		- 15th Century Lakota Shamanic Culture
+	- 2. Seeds in the Present
+		- Asheville, NC resisted corporations.
+		- Brooklyn, NY resisted Amazon.
+		- Rent Controls in NYC and Berlin.
+		- Finland, Sweden and Switzerland are Stage 5 Societies. Spain has Universal Basic Income.
+		- Korea, Colombia, South Africa, East Europe.
+	- 3. Adjacent Possible : Regional Governmental Organizational Networks
+		- Can create automated co-ops that form greater metropolitan area governmental organizations.
+	- 4. Endpoints
+		- Connecting artists to build a Web 3 "Planetary Escape Room" Game to coordinate with people and kids in a child friendly manner to do 4 things:
+		- Achieve carbon neutrality before the 10 year dead line of irreversible planetary collapse
+		- Get to a Gini Coefficient of 0.12 which 2nd Century Teotihuacan did with higher population density than London. NYC is currently at .55.
+		- Artists and intellectuals/activists on the back end, steering critical vision and content production. We construct methods to get paid for it. (Game engine and frameworks)
+		- Non artists do the work of translating and subverting mainstream culture and getting mass buy in.
+		- Redistribution and aid is built into the transactions
+		- Theres an automated co-op built in that obsoleseces and redistributes every major technogy in use today
+	- 5. why a game?
+		- Activists can't be targeted for gameplay
+		- Creates a place for children to socialize and learn tools that they can use to bootstrap out of arbitrarily predatory environments
+		- you can transact
+		- You can speak directly
+	- The [[Intercity Planetary]] is a quantum-aware network and transactional guide to incorporate the most inclusively scaleable practice s spanning urban, agricultural and nomadic regions. It is updated every 3 to 4 months.
