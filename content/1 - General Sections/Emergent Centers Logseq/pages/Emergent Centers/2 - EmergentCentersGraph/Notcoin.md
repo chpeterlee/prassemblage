@@ -1,0 +1,7 @@
+- Notcoin is an approximate representation of the [[possibility space]] all [[cryptocurrency]] that are not in current circulation*.
+	- Notcoin deploys [[quantum computing]] to simulate the possibility space.
+	- Notcoin mines argumentation through open source forms of staking such as [[dollar to doughnut]], [[facebet]], [[heartbets]].
+	- Notcoin uses a distributed staking, escrow, verification and collection mechanisms as determinable by the parties involved per transaction.
+	- Notcoin can integrate the [[Open Source Universal Basic Intelligence Communities]] various metrics such as [[Until We Are Worth More Than Gold (Main)]] to adjust transactions as determined to be sufficient by parties involved.
+- #Notcoin has functional overlaps with the #INF .
+-
