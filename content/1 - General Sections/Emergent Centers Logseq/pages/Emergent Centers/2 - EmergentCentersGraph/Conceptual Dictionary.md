@@ -1,0 +1,83 @@
+- 0. 2 new universal proofs by science:
+	- The universe is made of waves of energy who's differing amounts are represented as [[photons]], both visible and invisible.
+	- These [[photons]] obey a universal probabilistic law over an arbitrary timescale called [[negentropy]]. This timescale may be as small as light speed in the case of the negation of [[False vacuum decay]].
+- 1. Everyday vocab:
+	- May or may not
+	- Likely and unlikely
+	- Actually inclusively scalable or not?
+	- [[superpositional]]
+	- For a short rapping game - go to:
+- -----
+- 2. Everyday arbitration vocab:
+	- [[inference]]
+	- [[accuracy]]
+	- [[negentropy]] - a universal probabilistic law of all systems.
+		- [[Antifragility]]
+		- [[net negentropy]]
+	- [[Gravity]] - an inferential system which produces which produce
+	- For a performance game - go to:
+- -----
+- 3. Everyday conceptual frameworks
+	- [[Probability]] - a foundational concept which states that all systems have variant outcomes with differing likelihoods.
+	- [[Ordinalism]] - a numeral system in which the difference between numbers can be different amounts.
+	- [[Adjacent Possible]] - refers to the fact that there are at least 10^100 possibilities growing exponentially per second, for something as small as a single heart.
+	- [[Inferentialism]] - a set of 7 [[inference]]s which center around the fact that the universe is composed of photons which obey a universal probabilistic law over an arbitrary time scale.
+		- {{embed  ((((63a6c977-24c1-434a-ac18-742925ae9731))))}}
+	- For a short lecture - go to:
+- -----
+- 4. Major trans-disciplinary fields & cultural principles:
+	- [[Assemblage Theory]]
+	- [[Complexity Science]]
+	- [[Caucasus Region]]
+	- [[Bounded Rationality]] , [[partial views]] , [[Stupidity Thesis]]
+	- For a complete syllabus - go to [[9. 100 Years of Non-linear Future History & Geothermalpedia 6000]]
+- -----
+- # 5. Metrics
+	- [[Netflix Cost]] - $600 a second for non-paradigm shifting production.
+	- [[NIH Cost]] - $1800 a second for non-paradigm shifting research.
+	- Current crypto market cap is around $1.57 tn.
+	- Total value for an [[Accurate Market]] would be a minimum of $1 Trillion.
+	- Scale (Floor and Ceiling) or Bounded Rationality or Partial Views
+	- Cost/effect ratio
+	- [[Until We Are Worth More Than Gold (Main)]]
+- -----
+- 6. Cultural Arbitration practice s:
+	- Knowledge Games
+		- [[Open Source Universal Basic Intelligence Communities]]
+		- [[6. Newdle Endgames & Healightenment]]
+	- Media Synthesis
+		- [[inference]]synthesis
+		- {{embed  ((((3cc1e346-7452-4861-916d-f4ee1a1e6d97))))}}
+	- Touchpoints
+		- Moms & love
+		- Spirituality & healing
+		- Puppets & children
+		- Fiction & solutions
+	- The [[Inferential Gaze]]
+- -----
+- 7. New Organizational Protocols
+	- [[Quantumchain]]
+	- [[Notcoin]]
+	- [[ESTA]] Certification
+	- [[Notflix]]
+	- [[10. Skin in the Game of Accurate Markets & The Errorless Review Inferential Protocol]]
+	- To participate in large scale discussion games - go to : [[6. Newdle Endgames & Healightenment]]]]
+	- [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]]
+- -----
+- 8. {{embed  ((((edc97745-0ebc-4e1c-b545-a1dd0b7c454f))))}}
+- -----
+- 9. New system foundations
+	- [[persistent superpositional state]] - a combination of the concept of [[superposition]], matter, energy and info existing in multiple states simultaneously, and [[persistent state]] systems which maintain memory but evolve according to self-consistent dynamics over time.
+	- [[quantum mechanics]] - a [[paradigm shift]] empirically proven by [[quantum computing]].
+	- [[Geothermalpedia]] - referencing the fact that 6,000 times the amount of energy exists in geothermal forms vs. the oil reservoirs.
+	- [[clearboxed]] - as opposed to [[blackbox]] which is hiding or obfuscating the mechanics of an operation.
+	- [[SRP]]
+- -----
+- 10. [[inference]] Web
+	- [[[[inference]] Web 3+]]
+	- {{embed  ((((e909506d-3077-4eca-9900-c9d031f57b57))))}}
+	- The [[inference]]s' accuracy are constantly reweighted towards [[net negentropy]] in a system comprised of humans collaborating with AI parameterized on the latest versions of [[Open Source Universal Basic Intelligence Communities]] [[SRP]] protocol valued against the [[INF]]'s [[Accurate Market]] matrice. 
+	  id:: 7546ff14-dba9-401c-b40c-717958fbbf71
+- ----
+- 11. [[:#[[Intercity Planetary Almanac]]]]
+	- {{embed  ((((e0b5bacf-8ad3-4912-b655-a7b5b1311e58))))}}
