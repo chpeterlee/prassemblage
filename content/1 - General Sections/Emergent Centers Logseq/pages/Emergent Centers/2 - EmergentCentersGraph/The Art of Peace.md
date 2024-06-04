@@ -1,0 +1,8 @@
+- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2FO3SYt8sQ4w.png?alt=media&token=026ce0a1-8acc-4114-868b-35d313854485)
+- [#ArtOfPeaceMagazine](https://www.instagram.com/explore/tags/artofpeacemagazine/) is a quantumwave Web 3 project with the [[Planetary Research Assemblage]] that is based on the constant production of conceptual art as a pre-emptive conflict resolution game. Works can be made on magazines of any form; weaponry, print, digital, oral and otherwise.
+- late 16th century: from French magasin, from Italian magazzino, from Arabic maḵzin, maḵzan ‘storehouse’, from ḵazana ‘store up’. The term originally meant ‘store’ and was often used from the mid 17th century in the title of books providing information useful to particular groups of people, whence magazine (sense 1) (mid 18th century). magazine (sense 3), a contemporary specialization of the original meaning, gave rise to magazine (sense 2) in the mid 18th century.
+- Notes
+	- Perpetual Peace by Immanuel Kant.
+- 3. Superpositional Network & the Intercity Planetary Member Attached: [[Patrick Sargent]]
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2Fy3I6y6PHXA.jpg?alt=media&token=33bb7ec3-e4dc-42dd-95e3-f6cf528d754c)
+-
