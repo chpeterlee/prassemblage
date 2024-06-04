@@ -1,0 +1,1 @@
+- [[P.O.P.S. Art]] is an explicit strain of [[Paradigm Shift Art]] which aims to bridge conceptual art and pop realms.
