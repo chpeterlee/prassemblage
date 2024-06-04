@@ -1,0 +1,3 @@
+- [[Cards Against Fragility]] is a game that can be played on top of this wiki. Simply consider each statement, or block, or a page, made of cards which either lead to greater or less [[fragility]], or [[Inclusive Scalability]].
+- Use the [[Inclusive Scalability]] Visual Genetic Algorithm, (the Punnet Square) to gauge whether something is [[Inclusively Scaleable]], [[Uninclusively Scalable]], [[Inclusively Unscalable]], [[Uninclusively Unscalable]].
+- [[Cards Against Fragility]] is part of a category of games called [[Peace Games]], based around CSP game mechanics (Consume, Signal, Play) which also include the [[Pure Game]], all taking place in the [[Regener888 (Notes)]].
