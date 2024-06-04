@@ -1,0 +1,2 @@
+- Forwarding from old to redirect page to barcs.site
+- Then update the website.
