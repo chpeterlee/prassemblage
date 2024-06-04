@@ -1,0 +1,6 @@
+- Steganographic Documentaryis an art practice  that emerged from:
+	- 1. A widespread sentiment amongst media artists and filmmakers that [[experimental documentary]] had become the Zombie Formalism of moving image and research.
+	- 2. The surprising growth of the field of speculative archaeology, which includes the subfield of [[Post-empirical Science]] , [[Post-Normal Modernism]] and [[Speculative Modernism]] .
+- It is designed to address the drought of playfulness, complexity, criticality, history and fun in the media arts.
+- Particularly, it is designed to deconstruct and mock the 00's-10's convergence of seriousness and lack of intellectual skill in the documentary genre.
+- "Steganographic DocumentarySpeculative Manifesto:  A Speculation is a Speculative Document, A Document of a Speculation, and a Conceptual Artwork Simultaneously, According to the Tautological Structures of these Genres, Intertwined in This Self-Reflexive and Self-Referential Title, Who's Artistic Value Can Be Evaluated By the Most Non-binary and Non-linear Common Sense" 2023
