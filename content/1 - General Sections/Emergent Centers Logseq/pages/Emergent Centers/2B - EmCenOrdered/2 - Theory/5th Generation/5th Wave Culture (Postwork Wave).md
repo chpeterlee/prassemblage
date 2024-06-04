@@ -1,0 +1,21 @@
+- [[5th Wave Culture (Postwork Wave)]]  takes its ground as the dual dynamic forming the post-pandemic planetary context as described by [[5th Generation Revolution]] theory, Claire Bishop's contextualization of the 4 phases of conceptual art in relation to technology and [[Bernard Stiegler]]'s theory of the [[Neganthropocene]] and [[Neganthropology]].
+- This dual dynamic is composed of systemic fragility due to 1980's neoliberalism [[Trickle-Down Fragility]] and high availability of planetary-scale technologies. Culture in this context is comprised of 3 primary conceptual dimensions:
+	- 1. A relation to information, in which one is a perspective seeking an [[inclusively scalable]] [[Neganthropic]] [[bifurcation]], or complexification which expands one's capacity to affect their environment.
+	- 2.
+- ---
+- **Neganthropology: Foundation of **
+- **Fifth Wave Culture, Cosmopolitical & Postwork Protest and the Cool School Healightenment.**
+	- A relation to information in which the subject, human or non-human is seeking that which produces an unpredictable perspectival shift (or invagination).
+	- Basically, evolution via unexpected encounter, which can be through physical or informational means.
+	- This produces a novel paradigm of feminism, one founded on paradigm shifts itself, guided by a statistical principle of [[neganthropy]] or [[Antifragility]] or [[Inclusive Scalability]]
+	- [[5th Generation Revolution]]
+	- [[5th Generation Warfare]]
+	- [[5th Generation Society]]
+	- [[5th Generation Protest]] aka [[Cosmopolitical Protest]] aka [[Postwork Protest]]
+	- [[5th Generation Democracy]]
+	- [[5th Generation Art]]
+	- [[5th Wave Feminism]]
+	- [[5th Generation Writing]]
+	- [[5th Generation Modernism]]
+	- [[5th Wave Punk]] aka [[Postwork Punk]] aka [[Cozycore]] aka [[Neganthropology]] aka [[Healightenment]].
+	- [[Postwork Wave]], [[Postworksteading]], [[Postwork Economics]], [[CriticalCoin]], [[[[Postwork Capital]]]], [[Postwork Party]],  [[Postwork Love]], [[Postwork Theology]]
