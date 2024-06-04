@@ -1,0 +1,4 @@
+- The [[Inclusive Scalability Index]] measures the [[Inclusive Scalability]] of a given entity through three indexes used to triangulate a comparative valuation:
+	- [[Antifragility Index]]
+	- [[Gravity Index]]
+	- [[Assembly Index]]
