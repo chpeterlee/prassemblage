@@ -1,0 +1,2 @@
+- Ryan Trecartin intensity + spec objects
+- Rappers talking as abstractions
