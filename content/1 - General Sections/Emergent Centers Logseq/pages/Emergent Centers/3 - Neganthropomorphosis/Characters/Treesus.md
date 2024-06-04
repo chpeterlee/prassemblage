@@ -1,0 +1,12 @@
+- Treesus is an alien invasive plant messiah back from the future, born from the seed of [[Speculative Philostatistical Realism]]in the present, which is an assemblage of 5 emergent theoretical and cultural praxes:
+	- 1. Speculative Archaeology
+	- 2. Philostatistics
+	- 3. Perspectival Fiction
+	- 4. PopSpecPunk Art
+	- 5. Regiontech
+- [[Treesus]] has adapted their quantum chemical photosynthesis mechanisms to the human internet. They are part of the human-non-human art collective [[Trees Writing Books]] and are implementing several conceptual media art based projects:
+	- Psalms of The [[Book of Revelamasians]] and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] critical art reality gameshow.
+	- The [[Postworkverse Church]] and the [[Postworkverse Indepence Day]] holiday which lasts 365 days a year.
+	- [[Regener888 (Notes)]] including [[Treepac]] and [[Tree-Unit]] who make [[PopSpecPunk]] Art in relation to the Code of the Streets.
+	- [[ProSocialTV.art]] which is covering the ongoing [[Doughbomber]] campaign and [[Intercity Planetary]] open source Left command center launched by [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]] (also known as LETUS)
+	- The [[Untitled_2]] which produces data-backed and statistically reviewed valuations of abstract systems based on the [[Assembly Index]] and [[Gravity Index]].
