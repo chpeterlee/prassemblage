@@ -1,0 +1,8 @@
+- James Narez
+- Pixel encoding and pixel decoding
+- AI is simply sets of text instructions / Yoko Ono
+---
+-  Gray Man / John Wick
+- Hardcore Henry
+- Cyberpunk : Edge Runners
+	- Hyperspeed
