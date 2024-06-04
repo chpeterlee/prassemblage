@@ -1,0 +1,17 @@
+- ----- 1. Conceptualization:
+- [[Antifragile Peace Accord]] is an agreement encapsulating a probabilistic understanding of peace producing [[net negentropic]] system states at various scales on the planet - from planetary infrastructure to individual psyche. Calculations are updated in relation to the [[:#[[Intercity Planetary Almanac]]]] and the | Intercity Planetary [[inference]]stitution via [[Statistical Review Protocol]] as specified by the [[Open Source Universal Basic Intelligence Communities]].
+- ----- 2. Actualization:
+- Antifragile Peace is one of many ongoing [[persistent superpositional state]] visual and performing arts conceptual designs underlying the production of works exhibited in [[State Space Exhibitions & The Impossible Embassy]]. The [[Amasian Symphony Orchestra]] is also executing an "Antifragile Peace Anthem" utilizing a [[persistent superpositional state]] composition.
+- ----- 3. Variation & Synthesis:
+- Members of the [[Superpositional Network]] are [[inference]]d into various components and works distributed via [[[[inference]] Web 3+]], documented into various [[Grey Papers]].
+	- Conceptual Designers & Film Directors: [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Jon Perez]] & [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/1 - Knowledge/Individuals/Chongha Peter Lee]]
+	- Visual Artists: [[Selma Selman]] & [[Ozan Atalan (ext)]]]]
+	- Mediators: [[Endam Nihan]] & [[Neven Lochhead]]
+	- Performing Arts: [[Matt Nolan]] & [[Thomas Stanley]] & More
+		- [[Dylan Lardelli]] & [[Yara Mekawei]]
+	- Community Organizers and Participants: [[Austin Arrington]] & More
+- ----- 4. Review & Distribution:
+- D: After passing review in accordance to the [[Statistical Review Protocol]], the information is disseminated to the press via [[[[inference]] Web 3+]].
+- ----- # 5. Metrics & Arbitration:
+- E: Various agents produce interventions and [[inference]]s to enact [[Antifragile Peace]] in accordance to the | Intercity Planetary [[inference]]stitution and various metrics derived via the | Intercity Planetary [[inference]]stitution
+- {{embed  ((((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))))}}
