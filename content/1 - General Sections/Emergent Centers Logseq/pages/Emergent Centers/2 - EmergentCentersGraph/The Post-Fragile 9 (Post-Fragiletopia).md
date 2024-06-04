@@ -1,0 +1,20 @@
+- ((7388af51-d133-49ee-bec3-27b83eba5e60))
+- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FOwKjcZ8SuB.png?alt=media&token=cab6d623-7f98-4202-8323-60f1e213092a)
+- ((dc99c5fa-5952-4a2d-8fbb-2daac746921a))
+- 1. Complexity Science & Assemblage Theory (Jon Perez & Chongha Peter Lee & Antifragile Intelligence)
+- 2.  Antifragile Market in a Fragile Region
+	- [[Post-fragiletopia]] : Neganthropocene & Antifragility ([[Neganthropomorphosis/pages/2B - EmCenOrdered/Individuals/Ozan Atalan]] & Selma Selman)
+	- Fashion & cool.
+- 3. Neven & Nihan [[12. Captain Amasia & ESTA]]
+	- Wedding & Heartbets
+- 4. Healightenment & Negentropy: army of the undead horde on [[6. Notflix.art & Notcoin]]
+	- [[5. INF & Until We Are Worth More Than Gold]]
+	- Antifragile Virus Puzzle Game
+- 5. Kids, Elders & Oppressed [[Gen N & OSUBI-C]] & Bettor Art on [[inclusively scalable]] & [[exponential growth]]. [[Matt Nolan]] , [[Thomas Stanley]]
+	- Age of Mompires - expropriation grey list calculator
+	- Post-Fragile Art - antifragile calculator
+	- 80/20 >
+- ((0ccd0695-0464-418d-9dca-77529caea3d3))
+- ((efd17d41-2c40-4bc6-992f-08f2fdec7c1e))
+- ((2b36face-fbdc-4abb-8ee7-c7f4201952e0))
+- ((10f69e95-7f09-4ba5-9a25-92d41a48381a))
