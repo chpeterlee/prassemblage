@@ -1,0 +1,1 @@
+The [[Least Stupid Prize]] utilizes the following equation:  [Least Stupid Artwork] = [Least Dead Children, People and Planet]. All living humans and non-humans are pre-emptively granted a share of [[Antifragile Agent P. Roxy's]] artwork, which is currently valued at $5.10 per square centimeter.  ^72901b
