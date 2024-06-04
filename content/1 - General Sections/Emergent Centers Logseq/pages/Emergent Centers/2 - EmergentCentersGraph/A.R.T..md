@@ -1,0 +1,3 @@
+- A.R.T. or the [[Amasian Renaissance Tales]] is a fictional genre in which participants engage in producing their future history in the present through any and all media.
+- A.R.T. can also refer to [[Amasian Revolutionary Theater]].
+- A.R.T. can also refer to [[Amasian Reality Technologies]].
