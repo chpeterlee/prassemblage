@@ -1,0 +1,14 @@
+- The [[Postwork Majority]] block:
+	- The [[Postwork Majority]] is comprised of a statistical population of entities on the planet seeking maximally [[Inclusive Scalability]] in outcomes in regards to the planet's [[net negentropy]]. There is a spectrum of membership based on any individual member's [[Inferential Distance]] from maximal [[Inclusive Scalability]] in relation to a particular [[Problem Space]]. The [[Postwork Majority]] seeks to achieve this goal through a collaborative effort that values diversity, equity, and sustainability. The term "Postwork Majority" suggests that this group accurately represents a true majority of the planet's population, as opposed to just a vocal or powerful minority.
+	- To achieve maximally inclusive scalability, the Postwork Majority recognizes the importance of considering the needs and perspectives of all individuals and communities, regardless of their race, ethnicity, gender, sexual orientation, socioeconomic status, or other characteristics. This requires a commitment to social justice and a recognition of the interconnectedness of all human and non-human life on the planet.
+	- In addition, the Postwork Majority is focused on achieving a state of [[net negentropy]], which refers to the idea that the planet's systems should be in a state of balance and harmony, rather than a state of chaos or disorder. This requires a commitment to sustainable practice s and the preservation of the planet's natural resources.
+	- Overall, the Postwork Majority represents a movement towards a more collaborative, inclusive, and sustainable future for all individuals and communities on the planet. By working together and valuing the perspectives of all, the Postwork Majority seeks to create a world that is both thriving and equitable for everyone.
+	- Additional [[inference]]s:
+		- Much like the rest of the [[Neganthropomorphosis/pages/2B - EmCenOrdered/1 - Knowledge/Facts/Autodidactic Universe]], it evidences processes of statistical self-organization, or [[autopoeisis]], evidencing [[net negentropy]] over time.
+		- It conceives of [[negentropy]] in input and output tasks comprising systems, with the intermediary logics comprising infinite compounds of [[transduction]]s.
+		- Its interests unequivocally align with the greater balance of the planet, as it is in its self interest. It integrates an ontology of vibrations, some which are inaudible. It is silence-positive; interpassivity as resistance.
+		- It probabilistically manages its internal processes to negate external catastrophes.
+		- The Postwork Majority is comprised of 3 levels:
+			- Vibeshifter
+			- World-traveller
+			- Greywalker
