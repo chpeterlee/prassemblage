@@ -1,0 +1,62 @@
+- #shitpost
+- [[tag it and throw it under here!]]
+- [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+	- 1. Personal musings (dreams, musings, desires, wishes, journals, fiction, etc.)
+	- [[Art History Factory (arthistoryfactory.site)]]
+	- 2. Links and notes
+		- Hyperreadings
+			- The poet Jean Paul once wrote that books are thick letters to friends. Books as infrastructure enable authors to find their friends.
+			- From the guys behind aaarg.org
+			- **Serres notes that __guest__ and __host__ are the same word in French; we might say the same for __client__ and __server__ in a distributed protocol. And we will embrace this multiplying hospitality, giving and taking without measure.**
+			- 1 organizational role that changes depending on context
+			- (Artist)
+			- **User / Artist**
+			- Cultural Producer (placemaking)
+			-
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FTranspiracyTheory%2FHfZt5raQZU.png?alt=media&token=d5730ce9-12eb-4a38-ae61-5bad1d877c0f)
+			- https://samiz-dat.github.io/hyperreadings/
+		- Walid Raad
+			- Research-based Artist from Lebanon, deconstructed knowledge
+		- Game B (inspiring Game P)
+			- https://www.gameb.wiki/index.php?title=Get_Started
+		- [[Laurence Abu Hamdan]]
+		- The Confidence Man
+			- https://en.wikipedia.org/wiki/The_Confidence-Man
+	- 3. Ideas
+		- [[Toy Theory]]
+		- Save Your A.S.S
+	- 4. Images/media
+	- UNSORTED UNSORTED!
+		- sample1
+		- unsorted
+- #shitpost
+- [[tag it and throw it under here!]]
+- [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+	- 1. Personal musings (dreams, musings, desires, wishes, journals, fiction, etc.)
+	- [[Art History Factory (arthistoryfactory.site)]]
+	- 2. Links and notes
+		- Hyperreadings
+			- The poet Jean Paul once wrote that books are thick letters to friends. Books as infrastructure enable authors to find their friends.
+			- From the guys behind aaarg.org
+			- **Serres notes that __guest__ and __host__ are the same word in French; we might say the same for __client__ and __server__ in a distributed protocol. And we will embrace this multiplying hospitality, giving and taking without measure.**
+			- 1 organizational role that changes depending on context
+			- (Artist)
+			- **User / Artist**
+			- Cultural Producer (placemaking)
+			-
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FTranspiracyTheory%2FHfZt5raQZU.png?alt=media&token=d5730ce9-12eb-4a38-ae61-5bad1d877c0f)
+			- https://samiz-dat.github.io/hyperreadings/
+		- Walid Raad
+			- Research-based Artist from Lebanon, deconstructed knowledge
+		- Game B (inspiring Game P)
+			- https://www.gameb.wiki/index.php?title=Get_Started
+		- [[Laurence Abu Hamdan]]
+		- The Confidence Man
+			- https://en.wikipedia.org/wiki/The_Confidence-Man
+	- 3. Ideas
+		- [[Toy Theory]]
+		- Save Your A.S.S
+	- 4. Images/media
+	- UNSORTED UNSORTED!
+		- sample1
+		- unsorted
