@@ -1,0 +1,22 @@
+- The 5 Primary Assemblage Projects in partnership with [[Centre Amasia]]:
+	- #[[The Art of Peace]]
+	- [[Until We Are Worth More Than Gold (Main)]]
+	- [[Marrying the B.O.S.S. (Bank of [[Selma Selman]])]]
+	- [[100 Years of Nonlinear Future History]]
+	- [[Geothermalpedia]]
+- Web 3+ Freeform Essay:
+	- 1. The [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]]planetary free-form multimedia stream-of consciousness essay in conjunction with [[Centre Amasia]]. 
+	  id:: 71a3d89d-7fed-4c4a-b502-eb782fa40133
+	- 2. Here is an example:
+	- 3. The central lens from which to view cultural processes through the concept of the 'assemblage' - which is an understanding that all contexts are composed of and rejuvenated through multiplicities of meanings.
+	- 4. Contributors are encouraged to adopt an improvisational approach - producing novel links between existing communities. Some contributions will be made by machinic agents, in relation to ecological and social data.
+	- 5. It will be multicast through multiple media networks.
+	- 6. The 5 basic ways to use this interface:
+		- A. Type a Line. Copy and paste things.
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2FwXMwxyJzWy.jpg?alt=media&token=8aa89a64-67d9-49c7-902b-737f78ba9a0b)
+		- C. Make a Page by typing "[[]]"
+		- D. Stick an external link in here type /alias
+		- E. Nest an existing page using the "[[]]" command like [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]], or nest an existing bullet using the "/block reference" command ((71a3d89d-7fed-4c4a-b502-eb782fa40133))
+		- or use the "/embed" command to embed it like {{embed  ((71a3d89d-7fed-4c4a-b502-eb782fa40133))}}
+		- Video Here!
+	- 7. There will be monthly giveaways and features.
