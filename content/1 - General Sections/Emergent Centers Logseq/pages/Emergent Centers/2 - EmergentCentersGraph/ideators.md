@@ -1,0 +1,2 @@
+- ideators are entities that produce [[Quantum-Aware]] information, through physical or informational means. There is nothing that is not an ideator.
+- ideators are entities that produce [[Quantum-Aware]] information, through physical or informational means. There is nothing that is not an ideator.
