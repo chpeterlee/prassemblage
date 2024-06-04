@@ -1,0 +1,1 @@
+- The term recurrent events describes current events which are produced by systemic causes.
