@@ -1,0 +1,1 @@
+- In the film, [[Birth of an Invagination - Until We Are Worth More Than Gold]], Estamasia runs for president on the universal basic antifragile credit program; he hands out free NFT's to all to bet on what are the best ideas for saving the planet.
