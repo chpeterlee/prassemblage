@@ -1,0 +1,1 @@
+- The SRP stands for "[[Statistical Review Protocol]]" which is a protocol utilized by the [[Open Source Universal Basic Intelligence Communities]] in which agents execute a protocol of statistically inferencing net negentropic feedback system states of [[quantum photon]]s which can withstand peer review from both human and non-human agents.
