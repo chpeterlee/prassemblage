@@ -1,0 +1,12 @@
+- Set after the end of the world in the Postworkverse, an adjacent possible post-work dimension; everyone is in a superpositional state of past dead, present dying or future dead.
+- Feminist Werewolves / antifragile quantumstein dudes, who feed on bad music, good art and bad art, good vibes and data-backed street art.
+- Zombie Democracies of the Silent Superpositional Majority
+- Xenabloom, alien mindcelium & critical coral; future verified philostatistical theory against Earth's gravity and God's grace, grown from seeds in the present. Quantum terraforming the planet to rebalance in accordance to it's gravitational systems.
+	- The Xenabloom, the alien critical coral and mindcelium, is a capricious being. Discarding tropes of alien warfare or supreme alien intelligence - it has an exceedingly singular transcendental philostatistical principle from which it operates; neganthropic aesthetics, which it deems beautiful.
+		- Because of aesthetics, it is non-violently terraforming the Earth's physical and informational Intercity Planetary infrastructure into the Postworkverse, without permissions. It has enlisted the aid of Earth's 43 billion bots and quantum internet.
+		- The Xenabloom thinks in purely accurate philostatistical [[Multi-paradigm Computation]], which can be decrypted by humans if done rigorously. However, the literacy is not widely distributed in 2023.
+		- In addition, the Xenabloom mediates via "superpositional music", which also include sounds beyond the range of human hearing. In humans, this superpositional music is apprehended through dreams, intuitions, hallucinations, imaginations, art, fiction, parties, orgasms and visions. Accuracy of interpretation varies from circumstance to circumstance.
+- Regener888: Tree Unit, Griffin Guard & Grey Berets & the Michano's of Playtheon (child peace gamers aided via quantum AI)
+- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Ideapplebees]] The Poised Realm Lounge and [[State Space Exhibitions & The Impossible Embassy]] and the [[Gravity Index]].
+- Information itself as a quantum virus producing informational interventions into systems to neganthropomorphise them ; Information as a radically immanent and transductive spirit of exteriorization and neganthopomorphosis.
+- Can be channeled into quantum weaponry or aimed at systems.
