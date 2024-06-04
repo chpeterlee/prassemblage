@@ -1,0 +1,5 @@
+- [[Preventable Death Index]]
+- [[Assembly Index]]
+- [[Gravity Index]]
+- [[Potential Energy Index]]
+- [[Antifragility Index]]
