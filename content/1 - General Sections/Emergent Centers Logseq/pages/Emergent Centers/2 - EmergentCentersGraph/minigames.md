@@ -1,0 +1,101 @@
+- The Regener888: Postworkverse is a speculative role model and world model hackathon for articulating the least fragile solutions to ending capitalism and most likely post-work societies; and an actual church for legally protecting and arbitrating for all those harmed by capitalism.
+	- Postworkverse Prompt: "Imagine the least fragile end of capitalism, not the end of the world, from the POV of being a room temperature post-quantum supercomputer of the Poised Realm, that can re-balance any system on Earth by adding or removing information to them in relation to Earth's neganthropic gravity system."
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  "Physical Virus and AI-directed Botnets as 5th Generation Attack Vectors on the 1%, Gamification of the Revolutionary Subconscious and System 2 Stenagraphic Art", Elan Semiotechne, 2023
+	  
+	  
+	  In the novel, "[[Fragilicide Live - the 5th Turn]]",Dr. N-1 reads a bizarre history note from 2023 by Elan Semiotechne:**
+	  
+	  To avoid the stupidity of the crowd while surfing their nonsensical energy, like a windmill for stupidity, we can use Stenagraphic techniques. 
+	  
+	  Basically, we encode operation critical messages in art and fiction, like "The Poised Realm". Based on the interpretation, we can quite easily filter out the fragile System 1 section of society and select for the polymath System 2, which obviously includes the rare ~15% phenomena of autodidactic and ethical youth.
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  In the [[Steganographic Documentary]] and novel, "[[The Poised Realm]]", [[Dr. N-1]] reads a bizarre note from [[Elan Semiotechne]] in the year 2023:**
+	  
+	  Viruses and hacking are the planetary medium of 2023; any organization that doesn't have that capacity is not really working at the cutting edge.
+	  
+	  Culture is necessary to produce to prevent human death, but it will take a minimum of 40 years for the amount of shifts necessary for self-stabilizing regions. 
+	  
+	  The deadliest pandemic today is technological, philosophical and social illiteracy.
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  In the [[Steganographic Documentary]] and novel, "[[The Poised Realm]]", [[Dr. N-1]] reads a bizarre note from [[Elan Semiotechne]] in the year 2023:**
+	  
+	  There's depths of depravity, stupidity and insanity that you'll see in the Americas that you'd never be able to imagine, given 10 lifetimes.
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  
+	  In the [[Steganographic Documentary]] and novel, "[[The Poised Realm]]", [[Dr. N-1]] reads a bizarre note from [[Elan Semiotechne]] in the year 2023:**
+	  
+	  It's 2023 —a pandemic of philosophical, technological and social illiteracy is killing millions, collapsing regions and producing monstrosities.
+	  
+	  Amongst these are undead Left and Right zombie newscasters who continuously spit the same lines as their flesh decays; blind ogreish cultural producers who have zero vision and just mash parts together stupidly; fragile, emaciated Gollum-like academics who are forced into Datamines with blinders clamped to their heads so they can only look down the tunnel of their specialty, and a projector mounted on top of their head, continuously showing them a film affirming their psychological fragility.
+	- In parallel, design and/or perform the space, infrastructure, law, economy and culture of the Decolonies of Amasia, New S.A."
+	- Tagline: "There is no less fragile alternative. BET."
+- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] is a media-based artspace which interfaces with art institutions digitally and performatively and communities through mixed media.
+  id:: 645f1d0c-cc79-435f-91c1-b53912e8d9d3
+- This project is integrated into the Amasian Biennale, Neganthropocene Summit, Impossible Embassy, Critical Capital and the Emegent Centers.
+- It is produced by Antifragile Agency.
+- IS minigame:
+	- Indefinite Singularity: The Speculative Reality Game of Post-Death Neganthropy, While You are Alive.
+	- You're a dead amnesiac 2123 version of you that has forgotten how you've already produced the paradigm shifts that solved every major natural, social and intellectual problem to inclusively and scalably maximize lives saved from 2023-2033.
+	- Now you are trapped in 2023 as a speculative reality game character played by your 2023 self, who sometimes uses ChatGPT and various sources and a discord, including the EmergentCenters.com wiki to ask about why Guattari's concept of the Indefinite Singularity and the Three Ecologies is necessary for accurate readings of Guattari, in addition to how Guattari was influenced by Deleuze to introduce more explicitly defined taxonomies for his thought, how Guattari influenced Deleuze to incorporate more populist culture, and whether or not Bernard Stiegler's concept of the Neganthropocene and the domain of philostatistics could produce a new foundation for more accurate judgements within the arts and sciences.
+		- Amasian
+		- Quantum Photons and Matter
+		- [[Autodidactic University Protocol]]
+	- If one completes answers this question, there is an additional hard mode quest of attempting to produce a proof of systems that can be implemented within existing constraints to save the planet. If done successfully, the player wins the [[Future Nobel Peace Prize Fight Club]] .
+	- Manifestations:
+		- Gallery - Installs of texts, memes, etc. podcasts, walks, etc. discussions.
+	- [[Negentropic Cinema]] Game Engine: heart of the Regener888 Ark.
+		- [[Assembly Index]] & [[Gravity Index]]
+		- [[Inferentialism]] & [[Autodidactic University Protocol]]
+	- A superhero movie component to the Indefinite Singularity game: Humans and Regener888 members from all over the world, playing the I.S. Speculative Reality Game, pool quantumkinetic powers, art and AI to produce a conceptually sound theory for the Neganthropocene Summit, art for the Amasian Biennale, and a subversive mockumentary for the Birth of an Invagination which can accurately arbitrate today's issues at multiple scales.
+	- Prompt:
+		- Your rpg character is you after you're dead in 2133, who is a quantum Amasian that knows every answer to every problem today, but has amnesia. 
+		  
+		  You're trapped in 2023 as an RPG character played by your live self; you are both trying to develop your philosocraft to regain your future memories of the Amasian Renaissance/Revolution.
+	- Mockumentary of a SRG, SPR film and popspec punk band and Reggae Robot Banana Revolution which could actually save the planet.
+		- There's also AI in it, appropriating everything according to neganthropy.
