@@ -1,0 +1,10 @@
+- 5th Generation Theory
+	- [[5th Generation Art]]
+	- [[5th Wave Feminism]]
+	- [[5th Generation Warfare]]
+	- [[5th Generation Revolution]]
+	- [[5th Generation Democracy]]
+	- [[5th Generation Writing]]
+	- [[5th Generation Society]]
+	- [[5th Generation Modernism]]
+	- [[5th Generation Protest]] aka [[Cosmopolitical Protest]]
