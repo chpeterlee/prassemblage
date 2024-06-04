@@ -1,0 +1,2 @@
+- The [[Gravity Index]] is a philostatistical protocol based off of a Darkweb whitepaper and game in which the philostatistical principles of Earth's gravitational system constrains claims and speculations on both physical and informational systems of Earth; hence any claim or speculation can be determined to be accurate in terms of antifragile effects on Earth over time, error-checked against the properties of Earth's gravitational field.
+- [[inference]]s can be measured via assembly index verified against Earth's gravitational field using the [[Gravity Index]].
