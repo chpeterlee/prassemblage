@@ -1,0 +1,260 @@
+The [[Post-Normal]] Turn; [[Post-Normal]] Modernism
+
+Sound cuts space,
+Video cuts time
+
+---
+
+Claims that can't be verified.
+
+----
+
+[[Until We Are Worth More Than Gold (Main)]]: [[Democraseum (Exhibition Text)]] of the Global Commons Comments Section
+
+- Gen 3: Midwest Left + Marx, Frankfurt School + German realist school of photography and German expressionist literature
+	- Midwest left traces back to German idealism, protestanism
+	- Isaac Julien and Julian Rosenfeldt
+	- Solid undergrad could take them out
+- Gen 4: Accurate philosophy + Forensic Turn
+	- Ontology vs epistemology
+	- Accuracy = [[Antifragility]], inaccuracy = fragility
+	- [[Non-binary]] Grace and Creative Gravity
+	- [[Neganthropocene]]
+	- [[Assemblage]]Theory
+	- [[Hyperobject]]s / Hyperpainting
+- Gen 5: Southern Vibetech + [[Post-Normal]] + Speculative & New Materialism
+	- Philostatistics
+	- [[Post-Normal]] Evidence / [[Post-Normal]] Modernism, Evidence, Process, Media and informational embedding.
+	- Sound synthesizes space, video synthesizes time.
+	  ----
+	  Vibes
+- Full 90's Mode
+	- Richard Linklater Slacker shit
+	- Bikini Kill - Rebel Girl
+- [[Assemblage]]Aesthetics
+	- Who killed Roger Rabbit rotoscope and shit
+	- lo-fi punk - Lana Del Rey
+- Theory :
+	- Children's Socialist sci fi + Local Myths = [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]
+	- Defer to Pataphysical [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] (use printsthetics)
+- Art & Cultural Criticism: Horror Movie
+	- Experimental Documentary is Zombie Formalism of the Media Arts World.
+	- [[Until We Are Worth More Than Gold (Main)]] ; [[Democraseum (Exhibition Text)]]
+- Absurd Post-structural painting
+	- Gravity Lens
+	- Joseph Kosuth style triangulation and Szygzys
+	- Negative Space sculptures; Negative Space MEdia
+	  ---
+- Post-empirical Science + [[Post-Normal]] Science +The [[Adjacent Possibilities]] of chemistry
+	- As you investigate one compound, you generate 10.
+	- 1 million per year.
+	- Extend science community
+	- Understand there are insane questions
+- Wicked Problems / Wicked Solutions
+- Negative Theology
+	- Negation is method, not goal.
+	- Negation as goal = nihilism, negation as 1 of many methods = accurate and creative philosophy. Imagine sculpting but you can only remove material.
+- Negative Pataphysics
+- Neo-platonism / Buddhism, etch.
+- Folkloric creatures who are autonomous; faeries, goblins, infinite open source variations.
+- Moon rabbit as Amasian. Everyone loves dragons.
+  ----
+  Contemporary Art
+  ---
+- Hyper Object and hyper sculpture
+  
+  
+  Monoha
+- Joseph Kosuth / Michael Snow
+- Rachel Whitereade
+- Object, negative, process, caching
+  ---
+  
+  Gravitational lensing
+  
+  ---
+- ### Upcoming for art: the [[Post-Normal]] Turn and [[Post-Normal]] Modernism (5G Art and Culture)
+  Following the 4G Forensic Turn, the 3rd Gen Network Turn, the 2nd Gen Media Turn and the 1st Gen Artifact Turn.
+- #### The [[Post-Normal]] Turn, [[Post-Normal]] Modernism and the [[Post-Normal]] Zone of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]:
+  
+  [[Post-Normal]] Turn:
+  1. Maximum antifragile function, inclusive and scalable.
+  2. Clarity for 5 year old literacy via multi-paradigm minimalism.
+  
+  ---
+- ##### Voiced by: [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], Neon Madonna, Mamasia, [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]] and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]] , Superpositional Heroes of the Silent Majority of the Global Commons on Amasia.live . 
+  ---
+  
+  Things to mock:
+- The stupidity and vulnerability of the 1%, 100 families who own 50% of the planet's wealth, 100 corporations causing the eco-damage for 70% of the planet.
+- Fragile Right: (Karens + Alt Right) - right extremis
+- Fragile Leftism (Gwynneth Paltrow) + Cheesy Left Politics (Isaac Julien / Julian Rosefeldt)
+- Spurred by 5 bullets
+  ---
+- Zombie Formalism + Zombie Culture in all genres, Zombie Democracy + Zombie Intellectualism.
+- Things to contextualize: stupidity, inaccuracy, fragility and entropy as a force in itself produced by lack of education and broken infrastructure.
+- Proof: every possible inference can be measured against [[Neganthropic]] philostatistical principles of the Earth's gravitational systems using constructor theory, [[Assemblage]]theory, [[Post-Normal]] science and assembly indices; there are some inferences that are not possible to verify, which fall in the domain of post-empirical science and Pataphysics.
+- The social solution is to produce a proof to rescind a circumstantially entropic individuals' claims to reason (aka You're drunk, go home), bribe them into collectively beneficial deals (Aka if you eat your vegetables you get free ice cream) and directly modify the planet's infrastructure via non-lethal cyber and unmanned sabotage incentivized via Postwork Markets (Robin Hood style).
+  ---
+  
+  
+  Model - writes the slug in master-scene format.
+  ---
+- Roam.
+- Uses script to Caption the images.
+- Meme shots.
+- Youtube library.
+  ---
+  
+  
+  
+  Postnormal Turn:
+  
+  Fragile Left and Fragile Right and 1%
+  
+  Vs.
+  The Silent Superpositional Majority, the Global Commons, and [[Neganthropic]] PopSpec Art and Punk of the [[Postworkverse Church]], hosted by the [[Intercity Planetary]] [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] of Amasia, [[New S.A.]]
+  
+  Amasian Perspectivism, New Materialism, [[Neganthropocene]], The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Narrative/Poised Realm]].
+  
+  Superpositional Intersectionalism, Black Quantum Futurism, Ultrafuturo, FLC.
+  
+  Liberation Theology, 888 labor movement, autonomism and various free cities and anarchist movements. 
+  
+  Postwork Markets, Grey Hats, Grey Berets.
+  Media literacy, open source tech, folklore.
+  
+  ---
+  
+  Elixir of life = [[Neganthropic]] Information
+  
+  
+  ---
+  
+  Post normal error checker
+- S. Symphony
+  
+  History
+- critical art ensemble
+- Barcs
+- Tesla and Turing
+- Magi and vanga
+- Tom cruise energy / mark twain / major grom / hitar pitar sly villager 
+  
+  
+  
+  
+  
+  
+  
+  
+  **[[Post-Normal]] Modernist Zone Politics:**
+  
+  1. There's the 1% and 100 Titans of Neoliberalism, who's vulnerability is inflexibility.
+  2. There's the Fragile Left and the Fragile Right who's vulnerability is that they're utterly stupid.
+  3. There's the Silent Superpositional Majority who's vulnerability is they hate talking.
+  4. [[Regener888 (Main)]] and IRL artists, who's vulnerability is that they have to be reliable teachers and role models for humans.
+  5. Superpositional Mario Brother, the prophesied child [[polymath]] peace gamer of Syracuse, New York, 2032, who grows up reading [[Regener888 (Main)]]: [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] who is based on the legendary [[polymath]] of Syracuse, Italy that saved the city and invented a reliable method to assay gold. He is the one who sometimes possesses [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]'s body to act in the present, run the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] Hackathon, figure out the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] and run for president. His vulnerability is that he is 8 years old right now. [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] himself is sent back from the future children's curriculum by the [[Xenabloom]]. 
+  7. Methodology: [[Post-Normal]] Science, Negative Post-Empirical Science, [[Assemblage]]Theory, Assembly Indices, Philostatistics, Perspectivism and Gravity Systems Science. Human-machine-non-human team inferentialism and perspectivism.
+  8. Artistic References:
+- Syracuse Video Art Circa 2013-2016.
+- Philosophical Backdrop:
+- New Materialism, [[Neganthropocene]], Complexity Science and Post-net. Black Quantum Futurism & Superpositional Intersectionalism & Pataphysics. [[Assemblage]]Theory, Antagonistic Social practice and Media and Traditional Arts.
+- Cultural Backdrop:
+- Simone Weil, Antonio Gramsci, Autonomism, Liberation Theology, Mesophysics, Free Cities, Teotihuacan, 15th Century Africa & Asia, James Feguson & Central Asian Nomads.
+- Mythology:
+- Greyhats, Grey Berets and Postwork Markets.
+- Folklore of "sly villagers"; folklore of trickster spirits; folklore of arbitrators.
+  ----
+  
+  The flags start revolting
+  The Chemicals
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  What does a [[Post-Normal]] Modernist Hero look like?
+  
+  [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]], Sly Global Villager [[polymath]].
+  
+  ---
+  
+  
+  
+  Community: video curriculum with [[Regener888 (Main)]] characters watching it. Get together and watch videos.
+  ---
+  [[Regener888 (Main)]] narrative material
+  ---
+  
+  ---
+- Non-profits: guided meditation sound works
+- Intense stuff with shiny plant shit all over it.
+  ---
+  
+  
+  Monoco:
+- Ozan + Nihan
+- Antifragile Agent P. Roxy + jon - an experimental documentary about generating less fragile zombie experimental documentaries via [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]].
+  
+  ---
+  
+  
+  
+  
+  
+  
+  [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]'s Notes
+  
+  The [[Post-Normal]] Zone:
+  Negative Folk Pataphysics 
+  Aka Dragon Metal Country 
+  
+  1. TONE: Faux existentialist self-defeating nihilism, unspoken humble positivity and adjacent possibility (communicated via post-production).
+  
+  2. TARGET: Mock the Fragile Left Isaac Julien/ Julian Rosefeldt German Spiritualism + Poetic Critical Philosophy #TateBait fart vs. Le fArt
+  
+  3. SYNTHESIZE: Neganthropomorphise Fragile Right Cultural expressions
+  
+  4. UPHOLD: Exemplify the Sly Global Villager [[polymath]] figure.
+  ---
+  
+  Viktor tsoi movie
+  Lots theater with brecht and homeless kids
+  
+  
+  Narrative:
+- [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] goes to prison, gets taught
+- ## Upcoming video essay by [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] from the [[Post-Normal]] Modernist Zone of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]:
+- ##### FArt (Fragile Art, aka TateBait)
+- ## Vs.
+- ##### Le fArt (Less Fragile Art, aka [[Peter Obsidian/Neganthropomorphosis/pages/2B - EmCenOrdered/4 - Culture/Culture/Amasian Renaissance Tradition]])
+- hit up new mid market
+  
+  ---
+- green energy for the photos - circular
+- Make beads.
+- 7 points of estas tummy, surrounding Earth.
+  
+  ---
+  
+  2nd and 3rd World- give permits back.
+  
+  ---
+  
+  
+  
+  
+  [[Until We Are Worth More Than Gold (Main)]] Album Track:
+  
+  43 Billion Blows, (More Than)
+  
+  A punk song where we list 43 billion things that "blow" more than something else, with and without the 43 billion bots that exist.
+  
+  Then we curate it from things that blow the most to things that blow the least, with and without the 43 billion bots that exist.
+  
+  ,
