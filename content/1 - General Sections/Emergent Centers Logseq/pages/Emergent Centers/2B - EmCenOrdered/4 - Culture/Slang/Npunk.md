@@ -1,0 +1,2 @@
+- Npunk is punk based on the concept of [[negentropy]].
+- Everything can be summed up in the [[Npunk]] manifesto: Fuck Bad Energy, fuck linearity, fuck entropy, fuck boring art, fuck in[[accurate]] markets!
