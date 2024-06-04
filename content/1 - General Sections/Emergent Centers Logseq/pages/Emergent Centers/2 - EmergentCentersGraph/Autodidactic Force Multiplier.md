@@ -1,0 +1,1 @@
+- The mathematical descriptions of a human's cognitive, perceptual and affective rates of change in a waking state. This is a current topic in the [[Open Source Universal Basic Intelligence Communities]] [[Inferential Aesthetics, Culture and Games]].
