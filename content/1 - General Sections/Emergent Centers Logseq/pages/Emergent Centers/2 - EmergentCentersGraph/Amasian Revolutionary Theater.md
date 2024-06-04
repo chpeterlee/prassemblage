@@ -1,0 +1,1 @@
+- [[Amasian Revolutionary Theater]] a form of theater based on Asja Lācis, a female actress, theater director and theorist's idea of revolutionary theater, who was a contemporary of [[Walter Benjamin]]
