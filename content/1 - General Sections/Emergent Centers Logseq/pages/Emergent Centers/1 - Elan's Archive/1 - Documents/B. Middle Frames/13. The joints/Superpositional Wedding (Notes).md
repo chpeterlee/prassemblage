@@ -1,0 +1,46 @@
+### Unstructured Wedding Notes
+collapsed:: true
+	- 1 on 1 showings with important
+	- Cut back from prior zooms
+	- Do a cake presentation
+	- Activate a Roam.
+	- Gsheet Guest list & Bot distribution
+	- [[Amasian Biennale (Amasia.live)]] / N Summit.
+	  
+	  ---
+	- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] - Aggregator Site Embed
+		- Cool School Room.
+		- Small video trailer - The Graying via quantum AI - with [[Fragilicide.live]].
+		- Quantum Fist featuring [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]
+		- [[Regener888 (Main)]]z
+		- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Ideapplebees]] Ideapple Pie Presentation
+		- The dead - silent statistical majority.
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] - Superpositional Dream - scanner - randomly distributing views across places.
+		- Discord
+		- Gpt3 Chatbot
+		  
+		  
+		  ----
+		  
+		  --
+	- [[Democraseum (Exhibition Text)]] Wedding On the [[Neganthropocene]] During the Am BIen:
+		- Quantum Antivirus to the 1% , 100 corporations, and Fragility, and 500 Years of Fair Shares Stolen.
+	- Encode my vows and inject the information into my quantum cells.
+	- Partially entangled into a quantum computer for the superpositional wedding.
+	  ----
+	  
+	  Problems of thought as addictions:
+	- The addiction - Abel Ferreira
+	- Ideapples.
+	- Engagement with texts = The chemical payoff. 
+	  ---
+	- Substitution Therapy.
+	- Going through withdrawal - because you're out of drugs.
+	- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Ideapplebees]] can provide some substitution therapy.
+	- Fragility Proof
+	  ---
+	  Emergency Ontological Room
+	- AI to register commands and give art assignments
+	- write papers and consult
+-
+-
