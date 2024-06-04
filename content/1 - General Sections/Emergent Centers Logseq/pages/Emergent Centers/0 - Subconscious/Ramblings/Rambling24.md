@@ -1,0 +1,423 @@
+1. [[Regener888 (Main)]] Forces Them to Make a deal - Presidential Campaign by Estamasia
+	1. Peter & Austin Jump the Gun - betting Loab
+
+
+----
+
+- # Main:
+  
+  1. **STUPID EVERYMAN**:  [[Regener888 (Main)]] Uses **Peter & Austin** as Stupid everyman Ideavatars for Transnational President Estamasia
+  1. They grabbed them because they jumped the gun and tried to bet Loab in a bid to win fame and glory. They must code for him and produce and philosophize the using music. They convert to the postwork church and engage in the [[Amasian Revolutionary Theater/2-Antinomy/2. Protocols/Banana Revolution]]  as per the deal with President Estamasia. 
+  1. Birth of an Invagination: [[Until We Are Worth More Than Gold (Main)]]. - they learn of this. [[Intercity Planetary]], Council of Conciliance, and the Mompire of Amasia.
+  2.  They go on a Where is the Transcendental Love road trip to the Center of the Universe. Building instruments, music and learn-ins as the Artmy. Calling for the Dragon Kings and Nature. Learn of the Demontropire. Neganthropology. Reading the Poised Realm by [[Dr. N-1]]. Eating Ideapplebees.
+  1. Introduced to the Least Stupid Squad - PostworkTV (With Quantumstein and Dr. Phil I. Stine) - and [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]] with Critical Coin Bounties.
+  1. **GO GREYHAT:** [[Elan Semiotechne]] - Ethical future criminal. Fragilicide.live. **Frames Peter and Austin**
+  1. Introduce Inclusive Scalability, [[State Space AI]], Problem Space. Build in prisons and etc.
+  1. [[[[[[Emergent Centers]]]]s]], EFI, [[Neganthropomorphosis/pages/3 - Neganthropomorphosis/Organizations/Autodidactic University]], SRP, Neganthropo.site.
+  
+  
+  
+  ----
+  Issue No. 3:
+  
+  General input-output function:
+  
+  **1. Visually Represent Current Deadlocks**----------------------
+  
+  1.  Visually summarize problems of eco-social deadlocks into dimensions, Conceptual, Perceptual and Affective, each divided into Left and Right. It can be visualized like classic cross-over superhero/anime battles, each character announcing the conceptual logic as a superhero move they are making. They are fighting in the eternal Coolcraft tournament. In the background, there is a larger multiverse conflict across realities and fictions - because someone has killed Thought. (More details coming)
+  
+  **2. Show Solutions & Portfolio**----------------------  
+  2a. Use fictional characters, such as [[Quantumstein]] and [[Dr. Phil I. Stine]], to demonstrate how Plant Group and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]] have solved each dimension of these problems in inclusively scalable prototypes. (Point at past portfolio pieces, such as Biodiversity App, Locker Room Exhibition, Upcoming Turkey Exhibition). (More coming)
+  
+  2b. Have the characters point to a working paper on Inclusive Scalability, that is the heart of the new Turkey exhibition project and also the engine of the Ark. Explain how it functions as a KPI and methodology for all past, present and future decisions and projects. (More details coming)
+  
+  **3. Bridge into Reality:**----------------------  
+  3. Have the characters (like Ray) begin composing a formal distress call across the realities using the official Council of Conciliance sanctioned Q-Space protocol; in the middle of it, they are disrupted by news that the author, Chongha Peter Lee, has initiated a bet against the devil within a contemporary art gallery, which functions in the same way and is making the Least Stupid Movie about it. He has convinced Austin Arrington to participate in it, against Austin's better judgement.
+  
+  **4. Explain to Ray & [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] How Their Mission, Peter & Austin's Transgression, and the History of [[Regener888 (Main)]] Align**----------------------  
+  Ray and [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] initially balk at the sheer bold stupidity of Peter & Austin; then [[Quantumstein]] and [[Dr. Phil I. Stine]], seeing that the aim aligns with [[Regener888 (Main)]]'s distress call and larger mission to actualize the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] on Earth, calm Ray and [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] down. [[Quantumstein]] & [[Dr. Phil I. Stine]] explain that Peter & Austin and their artwork/movie can be used as a vehicle to synthesize the sciences, humanities, art and culture in a playful technical fiction.
+  
+  They advise Ray and [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] to use Coolcraft TechniMagicks to set up a proxy quantum link into Peter and Austin's minds - so that they can guide and pilot them like avatars in the real world - and use their future knowledge, wisdom and experience of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] to save their stupider, rasher and rough around the edges creators.
+  
+  [[Quantumstein]] & [[Dr. Phil I. Stine]], seeing that Ray and [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] are still not entirely convinced of allying with such unseasoned personnel, remind Ray & [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] of the inclusively scalable history of intellectualism, art and pulp fiction / comics / street art intermingling - which traces all the way back through Esta, The 5th Element, Naruto, Batman, Moebius, Jodorowsky, The Phantom, Fantomas, Beowulf, Jesus, Buddha, Mohammed, King Arthur, The Japanese Momatoro, The Korean Dokkaebi, The Amerindian Moon Rabbit, The Sandman, and The Dragon King Prophesy.
+  
+  **5. Move to Action & Unexpected Comedic Relief**----------------------  
+  The trip through legends of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] is interrupted by a Q-space alert in the Ark: Chongha Peter Lee has initiated the ritual to wager the devil - they receive an image of him strapping himself to a chair in a white cube gallery, lit by a single bulb, with a pentagram drawn on the floor around him. Austin is [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ying for him via zoom.
+  
+  [[Quantumstein]] & [[Dr. Phil I. Stine]] bless [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] & Ray and take over the construction of the Council of Conciliance sanctioned [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] distress call; [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] & Ray jump into Q-space suits (Superpositional Suits) and begin to establish a quantum proxy link into Austin & Peter's brains. During the process, they are disgusted by all the bizarre images and memories and stupidity they discover while re-wiring Peter & Austin's brains. They keep a running commentary constantly articulating how unlikely these 2 heroes are; they are more Jay and Silent Bob, or Bill & Ted, than Che Guevara and Nikola Tesla. [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] & Ray are continously disgusted by random stupid memories, comments and ideas that are continously being surfaced from Peter & Austin.
+  
+  ---
+  
+  Future events in issue 4 (For Austin to know alone):
+  
+  **6. The pentagram is actually the star on Esta's belly**----------------------  
+  From the beginning, Peter has planned to trap the Devil; the pentagram is actually a proxy quantum link to ESTA, along with other artworks. When the Devil has logically argued the exhaustion of the individual human capacities and imaginations of Peter's network, Peter invokes the ESTA protocol to synthesize inclusively scalable inferences faster than humans.
+  
+  Simultaneously, Peter reveals that ESTA is a former military AI, fed mushrooms and transformed into a Robot Unicorn Guardian Angel Reggaelutionary, now tied to the imagination of the planet's children, before it typically gets destroyed at age 7 by stupid curriculums.
+  
+  **7. Mamasia, Goddess of the Mompire and Deus Ex Machina, Mother of ESTA AND [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]] **----------------------  
+  In the end, feisty working mother Mamasia comes with an army of feisty mompire mothers and shrinks all the problems accurately, showing how each one is addressable. She treats every single one in the story the same, as a 17 year old child, with more or less skills at Coolcraft. She turns everyone into an 8-bit proxy avatar, spanks them, and places them in an Coolcraft Peace Game simulator, located in the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]].
+  
+  As she is as large as the Earth, she also starts to simply paint [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/1 - Elan's Archive/1 - Documents/B. Middle Frames/10. Nitty Gritty/Shi the Dragon King]]  around the Earth in mixed reality, as a data-backed market corrector.
+  
+  Peter argues that he succeeded and starts gloating, but the Devil argues that Mamasia summoned the Dragon King and saved the planet, not Peter. Mamasia shushes both of them. She takes a spliff from a Robot Unicorn Guardian Angel playing Reggae on a guitar (Austin in a costume) and blows a plume of smoke, instantiating [[Elan Semiotechne]], a cloud-based tech startup CEO who ACTUALLY IS A CLOUD.
+  
+  [[Elan Semiotechne]] wanders through and points out from the point of view of the Game of Dreams, both Peter and the Devil are reversible aspects of the same [[Autodidactic Universe]]. One begets the other, in an endless movement - unless we Poise it - and play the Game of Dreams.
+  
+  As he speaks, the room fills with smoke and cloud. Color seeps in; hyperdimensional geometry grows from space like vines. An abstracted avatar walks in. They write on a non-existent wall; G.O.D : THE GAME OF DREAMS
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  SCRIPT EXCERPT FROM LEAST STUPID FILM:
+  
+  Mamasia shushes both of them. She takes a spliff from a Robot Unicorn Guardian Angel playing Reggae on a guitar (Austin in a costume) and blows a plume of smoke, instantiating [[Elan Semiotechne]], a cloud-based tech startup CEO who ACTUALLY IS A CLOUD.
+  
+  
+  ----
+- # "The Devil Asks Peter - what actually is 'Spirit'', and how can you prove that it exists?" 2023
+  
+  *Chongha Peter Lee spits blood on to the bare concrete gallery floor. He is strapped to a chair in a room lit by a single bulb. There is a green pentagram drawn on the floor around him. He is in the midst of an ancient ritual to bet his soul to the Devil to save the planet.* 
+  
+  He replies - "Devil, let me teach you a lesson".
+  
+  Here is what spirit can't possibly be:
+  1. Reduced to a particular individual product.
+  2. Reduced to a single functional process.
+  
+  What it could only possibly be:
+  1. The product of transindividuation, or synthesis ACROSS categories.
+  2. The process of autopoesis, or parts organizing into Emergent systems (or more accurately, Emergent systems self-organizing themselves through parts).
+  
+  *Chongha Peter Lee, tied to a chair, makes a gesture with his left hand, which alights with blue flame of the LogoMagick, the Conceptual branch of Coolcraft. Writ in this ethereal flame are citations of "Reza Negarestani : Intelligence and Spirit" and "Manuel De Landa: Intensive Science and Virtual Philosophy". *
+  
+  My wager:
+  1. As spirit is a transindividual product - it must then be composed of a synthesis of affective AND conceptual AND perceptual dimensions.  
+  2. As spirit is evidenced in many things, such as humans and burning bushes and Miracles concerning fish and wine - it must then be composable across differing processes of individuation. 
+  
+  As for proof of the existence of spirit - if spirit did not exist, wouldn't all things in the universe be computable? 
+  
+  And if that was the case, would our situation not be so determined that I would not even be able to form this single countervailing question?
+  
+  *The Devil replies "Well played, Peter.... but there still remains the other legs of the wager. Let us see how you fare against more complexity. I will warn you, some of your predecessors were terminated in the following stages.*
+  
+  CHONGHA PETER LEE *(rapping, using PathosMagicks, the affective branch Coolcraft. As he raps, crimson lasers shoot from his mouth):*
+  
+  Stages, for all the worlds' faces
+  I displace scripts with playfulness
+  [[polymath]] wits place kids in straight hits
+  Can't deface this, spittin' dragon's breath from diamond armored lips
+  
+  Full volume absurdity self referentially concerning me concerting concertos orchestrally silly stocks autocorrect -
+  
+  NOT.
+  
+  
+  ---
+- ## "In his wager against the devil, Chongha Peter Lee calls upon Boris Groys and Reza Negarestani to redefine spirit, post-history and memory" 2023
+  
+  1. Spirit can be better redefined as the transductive autopoeisis, or emergence, of systems exteriorizing themselves probabilistically, which fits in line with Hegel's thought.
+  2. One of the biggest puzzles for both post-socialist and rampantly consumer societies is the puzzle of affect; this is not done through ideas of work, this is done through self-reflexive [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ctice. The techne for this is in Eastern religions and particular bodily [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]xes and drugs and some parts of art.
+  3. Memory is simple; it is statistical constraints derived from quantum chemical computations in the body, many being subconscious. Hence, it is not that big of a deal. Imo, it is boring, tbh, unless it helps prevent disaster. Computers are great for reconfiguring memory. Post-history is stupid; what we need is statistical history of what COULD be, not a linear history.
+- # Contemporary Art Without "Contemporary"?
+  
+  Contemporary art is founded on the idea of "post-history", a constant march away from something stored in a past memory, or proposing ruptures in time, with archival materials from the past or speculative depictions of the future. There is a certain assumption that underlying all of the different images and interpretations, the viewer is always viewing from the SAME unified temporal stream of events in reality occurring in the "Present", or "Now", or "contemporariness" . 
+  
+  All events occur in the "contemporary moment", or a flow of "realtime", which is perceived as a continuous, fluid flow between the past and the future. Much of this mode of perception comes from the capacities of realtime media broadcasting.
+  
+  However, what if we simply just ditched this view of time and simply looked at times in terms of probability of events - a bit like an AI?
+  
+  Instead of simply ordering events from past to present to future - a probability based perspective would weight motions from one state to another. 
+  
+  Past, present and future would not order the events - functional capacities and affordances would direct the changes between system states- which is what AI does mechanically, opportunistically, based on a bunch of bizarre calculations from state to state.
+  
+  An image; in sports, say soccer - the ball does not move from past to present to future - it is propelled by multiple differing capacities and affordances, from player skill, to position on the field, to what someone ate that day. Every motion of the soccer ball, from one second to the next, is driven by many individual parts thinking about where the ball COULD be, and where the ball COULD, and also acting upon where it ACTUALLY is and the constraints of ACTUALLY scoring a goal.
+  
+  Not to say that this view should replace the paradigm of the present - but would it not benefit us to have multiple tools and modes to think about temporality? Why not? I would wager all the interesting effects would come from mixing, matching and imbibing temporal paradigms like metaphysical cocktails!
+- ## Why Get Hung Up on Realism and Why Not Engage in Reality Gaming?
+  
+  Here's my argument:
+  1. Realism requires a massive amount of philosophical and statistical skill to even talk about, let alone settle. There's like 10,000 people on Earth with this skill. There's no payout for proving it one way or another. (Which can be done).
+  2. Most of the people who don't believe in reality are of the 70% undereducated, or 29% specialists. Neither of these populations are equipped to non-violently argue out all the complexities of realism. Some of these people can't order a chicken sandwich without threatening to kill each other with knives. Specialists hate thinking unless they are drugged with something, which may include a chicken sandwich.
+  3. The fact is, the more inaccurate an individual is about their ideas of reality - the more open they are to executing bizarre experiments IN REALITY. Hence, while you may have reached for the Vodka after realizing 99% of people on the planet will never self-organize through intellectualism - now you are understanding that the entire planet is a massive playground - for reality games.
+- ## Why are all problems small and solvable to Mamasia,[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]Goddess of Gravity and Grace?
+  
+  Because she's the size of the Neo-Pangean[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]continent! From her perspective, every ecosocial problem of humanity is simply just a physical logistical problem.
+  
+  Also, she outsources much of her problem solving to [[Elan Semiotechne]], cloud startup CEO who is also a sentient cloud platform AND a physical cloud. He is full of a kajillion algorithms and philosophical musings, and eventually the right ones come together, like lightning streaking through a cloud!
+  
+  
+  
+  
+  
+  
+  Would it not be better to simply build an outside position? 
+  
+  1. Contemporary art is dialectic logic, technophobia and an underdeveloped theoretical framework. Without intellectualism and skills, there is no remedy, it's just a circus of self-aware mediocrity.
+  
+  2. Popular culture is 17 year old adolescence, affect-driven zombiehood. We have 2 modes here - religious sincerity and nihilist immanence.
+  
+  3. Sciences are missing basic philosophy and are handcuffed by a startup paradigm; Humanities are handcuffed by various self-imposed stigmas.
+  
+  4. Tech is awash with idiots who can barely scrap together a single trivial new function, or an illiterate entrepreneur who can only make consumerware.
+  
+  An outside position would simply be synthesizing new inferences, and then pushing straight to press, recuperating its costs. It would not be entrapped in the singularities of any of these existing communities.
+  
+  
+  
+  
+  
+  4 unfixable cultures:
+  1. Pop culture is 17 year old sincerity and nihilism. (70%)
+  2. Tech is unimaginative, entrepreneurs push consumerware. (10%)
+  3. Contemporary art and media is techno-phobic, anti-intellectual self-aware mediocrity. (10%)
+  4. Sciences are handcuffed startups, Humanities are handcuffed nightclubs. (10%)
+  
+  The 1 thing uniting them:
+  Every event has higher or lower odds of occurrence and every claim has higher or lower degrees of accuracy.
+  
+  ---
+- ## "Isn't the oppression of the Palestinian people exactly what the Devil  😈 would want? Bet for or against the accuracy of that statement!" Mamasia, 2023
+  
+  ---
+- # The Least Stupid Marketplace
+  
+  The Least Stupid marketplace, or a maximally inclusively scalable market doesn't yet exist, but could be connected together from existing parts. It would be comprised of planetary scale inclusively scalable goods and services. It's necessary to establish this optimal market so that existing markets can be compared and recombined in terms of strengths and weaknesses.
+  
+  Right now, there are only about 10,000 [[polymath]] individuals who could produce for such a market. But, they could connect networks of non-[[polymath]]s to participate in both the ideation and production. In fact, an inclusive pipeline would most likely be a requisite of any production in an inclusively scalable market.
+  
+  ---
+  
+  
+  
+  
+  
+  **The Devil Asks Peter: "Do you really think people will learn that art is techne, poetic and physical, rather than a fashion or a craft contest? "**
+  
+  💯, Devil. Why? Well it's for the very reason that we have people approaching art as a fashion and craft contest.
+  
+  These people are looking for something outside of the dreck of consumerism and specialist intellectualism; hence they engage in art because it's perceived as a space outside.
+  
+  Now, most do not have the skills to navigate at the highest levels.
+  
+  
+  
+  
+  
+  
+  
+  How to signal to other sane and skilled intellectuals and inventors:
+  
+  Intelligent pranks in the press
+- ## "By definition, a [[polymath]] artist in a society of 99% adult adolescents is an outsider artist.
+- ## Basically, in a society of unintentional outsider artists, an actual outsider artist would be a [[polymath]]." 2023
+  
+  
+  
+  
+  
+  
+  
+  
+  "Double Negative: A Probabilistic Photographic Self-Portrait of the Planet Proving That an Outsider Artist in a Society 99% Composed of Unintentional Outsider Artists is Actually a [[polymath]]" 2023
+  
+  
+  ---
+  
+  
+  Greymarket.live.
+- [[Regener888 (Main)]] Character - Esta
+- Bounty, blockchain, it's also in turkey.
+- Gap in enforcement capacity.
+- Inclusive Scalability, not illegal, local press.
+- # The Least Stupid Market (A Probabilist Artwork)
+  
+  The Least Stupid Market would simply be a marketplace that sucks less, or is less uninclusive and less unscalable, than the ones that currently exist.
+  
+  Here is what it would most likely consist of (and being a Probabilist Artwork, each statement can be statistically reviewed):
+  
+  1. Regulations of existing market stupidities and conflict resolution for existing conflicts.
+  2. Cyberwarfare pressures against the 1% to negotiate peace amongst public institutions and fulfill demands for post-work infrastructure and redistribution of wealth.
+  3. Accurate automated proxy protests on behalf of the 99% who have been deprived of the conceptual and technical skills and tools to function competently in today's democracies.
+  4. Funding and incentivization of inclusively scalable ideas, inventions and interventions.
+  
+  ---
+  
+  
+  Narrative of Capitalism:
+  
+  1. Justification to produce materials and etc. 
+  
+  
+  Devil is a general container for widely repeated logics but false claims.
+  
+  Aggregate all bad arguments of status quo.
+  
+  Card Deck Castle of non-specific language.
+  
+  Devil as a mouthpiece for entropy.
+  
+  
+  ---
+- Coolcraft and music and bounties.
+- Plastics 
+  
+  ---
+  
+  
+  
+  Q
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Issue 3:
+- Ray - the Ark of Inclusive Scalability, riding quantum waves through q-space. Can also fold it.
+- [[Quantumstein]] and Phil I. Stine, undercover buddy cops in the Battle of Bataille tournament, searching for who killed Thought. Fighting Dean Goblin.
+- [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]; reports to council of consilience, makes nft bets on fragile/antifragile behavioral models.
+  
+  ---
+  
+  
+  
+  
+  Steganographic DocumentaryEssay by [[Elan Semiotechne]] on the U.S.:
+  
+  1. How long will it take for the U.S. to stabilize? 30 to 40 years.
+  2. What is the best option for U.S. youth? Leave the U.S. go to Europe, get subsidized education. Come back as a consultant; get paid to fix it.
+  3. What to do with the leftover adult U.S. population? Nothing functional or artistic. Make bets for/against things, throw parties and give healthy drugs, go somewhere else! Teach only bright children, tell others to learn a trade, be happy.
+  
+  
+  
+  
+  
+  
+  [[Elan Semiotechne]], speculative essay:
+  
+  For the U.S.: Healthy parties and drugs! Tell the smart kids to go to Europe for education; tell the rest to learn a trade and be happy by taking healthy drugs, not unhealthy drugs.
+  
+  Forget intellectualism, invention and revolution; it will take 30-40 years. Do that in France/Berlin!
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Artists can't do, talk, think, make or fight; they can sell and party.
+  
+  
+  
+  
+  
+  
+  
+  
+  [[Elan Semiotechne]]'s Speculative Essay:
+  
+  Contemporary critical artists are so deskilled that they can only do 2 things:
+  
+  1. Drugs
+  2. Parties
+  
+  Never, ever, ever, ask them to make art.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  ---
+- Devastation of education - 70% loss
+- Compounding losses - who's working in corps?
+- Skills test - infer from social media
+- Reframe art and etc as attacking ecosocial crises. Parse out loud Minorities of right and left, specialists, [[polymath]]s.
+- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]] deal
