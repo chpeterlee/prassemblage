@@ -1,0 +1,1 @@
+	got it, i think i figured it out: 1. There's things people like doing but aren't good at 2. There's things people don't like doing but are good at 3. There's things that are natural for people that they don't know is unnatural for others  
