@@ -1,0 +1,48 @@
+- New S.A. is a Sci-Fantasy Soap Opera Game of the [[Intercity Planetary]] that takes place in the [[Neganthropomorphosis/pages/2B - EmCenOrdered/1 - Knowledge/Facts/Autodidactic Universe]]. It is built on a [[persistent superpositional state]] system.
+  
+  {{embed  ((((b0afc42c-01a1-474c-ad5f-464ab769a10e))))}}
+	- There are 5 mini-games in the [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]]:
+		- 1. There is a non-euclidean & non-linear [[Quantumsexual]] wedding game to the [[Universal Attractor]].
+			- (The wedding has infinite dimensions and as you move, the relations change).
+		- 2. The World War Stupidity game - a wargame where everyone in command of military forces is stupid as are all the reasons. World War Stupidity is fought via cyberwar and drones.
+		- 3. Ol' Dragon BettorZ aka the DAO of the [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Dragon Kings]] aka the Playful Way
+			- The 5 elements that comprise a quantumsexual dragon king:
+				- 1. Imagination
+				- 2. Ethics
+				- 3. Love
+				- 4. Wagers using the data of the dead and physical dynamics of human heartbeats
+				- 5. A commitment to the Playful Way (edited)
+		- 4. One last component of our soap opera - people play the [[10. Skin in the Game of Accurate Markets & The Errorless Review Inferential Protocol]], which they appoint themselves ministers of something, and also .... there are [[Artists]] perform as high school teachers from the future run for president.
+		- 5. Everyone is writing [[100 Years of Nonlinear Future History]] and [[The Art of Peace]], and betting on ideas, like scientists and generals, [[Artists]], businesspeople, and the Earth. This is called the New S.A. Bettorlution by a cosmic thrift store called [[Paradigm Thrift]] and Postwork Market. [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] is a history teacher back from the future, rallying the [[3.5%]]'ers and working with [[Gen N (Generation Negentropy)]] teens and the [[Superpositional Party]] to build the [[Accurate Market]] and more [[Accurate Collar]] jobs, playing Who Wants to be a Trillionaire, incorporating Notflix, which reports on [[Recurrent Events]].
+	- Other overlapping games:
+		- Newdle Endgames
+			- Endgame
+				- 1. Every answer is composed of a puzzle of [[inference]]s.
+				- 2. Some [[inference]]s are more or less likely than others.
+			- What is the point of ecology likely to be?
+				- Thought experiment:
+					- Defining what the point is or isn't likely to be.
+						- The point of ecology is to provide a framework of language of an organism to its surroundings.
+						- It isn't what it isn't.
+						- **The point of the ecology of the Earth as a physical system isn't LIKELY be to destroy the universe. **
+							- possibly, likely.
+							- may or may not.
+					- Proof of existence.
+						- High probability that [x] exists.
+						- Claim
+						- How could imagination not exist?
+						- An object may or may not exist as defined as such of existing, but nothing persists without change over time.
+			- What is the point of society likely to be?
+			- What is the point of intellectualism likely to be?
+			- What is the point of commerce likely to be?
+			- What is the point of culture likely to be?
+		- Paradigm Shift Art Prize
+			- Planetary infrastructure scaled paradigm shifts are valued a minimum at $1800 per second, based on the budget of the NIH for non-planetary infrastructure scaled paradigm shifts.
+			- Cultural paradigm shifts are valued at $600 per second, based on the rate that Netflix pays out for the production of TV that does not contain any paradigm shifts.
+		- Interpretation
+			- [[accuracy]] vs. inaccuracy.
+		- Heartbets
+			- Doughnuts to a dollar.
+			- Slap to the face.
+			- 350 million heartbets to wager.
+- {{embed  ((((56ff754a-67a7-434b-a4b9-08115e6cbda7))))}}
