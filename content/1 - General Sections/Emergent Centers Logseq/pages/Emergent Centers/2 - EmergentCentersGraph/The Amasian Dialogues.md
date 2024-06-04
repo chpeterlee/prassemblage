@@ -1,0 +1,1 @@
+- [[The Amasian Dialogues]] refers to the planetary conversation regarding the current formation of the super-continent, or Neo-Pangea, of [[Amasia]] which then recontextualizes all of the planet's current population as various forms and localizations of Amasians.
