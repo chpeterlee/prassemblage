@@ -1,0 +1,4 @@
+- https://arxiv.org/abs/2104.03902
+- The autodidactic universe is a public 0. [[[[inference]] Web 3+]] layer built on the [[Intercity Planetary]] inferential matrix networking photonic computational cameras assemblaged through multiple means.
+- The autodidactic universe core principle is premised on the [[inference]] that the universe is composed of visible and invisible photons moving at varying speeds, obeying a universal probabilistic tendency over arbitrary timescales. This overlaps with various [[inference]]s of [[Inferentialism]].
+-
