@@ -1,0 +1,22 @@
+- ---
+- # 1. Definition
+	- The Regener888:  is a speculative fiction for articulating the least fragile solutions to ending capitalism and most likely post-work societies; and an actual church for legally protecting and arbitrating for all those harmed by capitalism.
+		- Postworkverse Prompt: "Imagine the least fragile end of capitalism, not the end of the world, from the POV of being a room temperature post-quantum supercomputer of the Poised Realm, that can re-balance any system on Earth by adding or removing information to them in relation to Earth's neganthropic gravity system."
+		- In parallel, design and/or perform the space, infrastructure, law, economy and culture of the Decolonies of Amasia, New S.A."
+		- Tagline: "There is no less fragile alternative. BET."
+	- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] is a media-based artspace which interfaces with art institutions digitally and performatively and communities through mixed media.
+	- This project is integrated into the Amasian Biennale, Neganthropocene Summit, Impossible Embassy, Critical Capital and the Emegent Centers.
+	- It is produced by Antifragile Agency.
+- ---
+- # 2. Applications
+- ---
+- # 3. Source Contexts
+- ---
+- # 4. Multi-cast Distribution
+	- Multi-cast Distribution:
+		- [[Amasian Biennale (Amasia.live)]]
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]]
+		- [[Regener888 (Notes)]]
+		- [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
+		- [[Amasia.live]]
+		- [[Superpositional Network]]
