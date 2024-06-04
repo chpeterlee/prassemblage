@@ -1,0 +1,3 @@
+- What is Behavioral Neganthropology & Behavioral Antifragility?
+- A behavior that is both inclusive and scalable, not simply just one or the other.
+- A behavior is comprised of a system of [[inference]]s transforming potential kinetic energy over time, bounded in scale, rationality and probability.
