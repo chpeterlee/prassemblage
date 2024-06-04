@@ -1,0 +1,1 @@
+Radically Inclusive Scalability is a pairing of the criteria of both inclusivity and scalability.
