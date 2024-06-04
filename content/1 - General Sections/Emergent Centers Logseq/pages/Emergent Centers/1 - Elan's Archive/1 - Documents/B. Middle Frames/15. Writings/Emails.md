@@ -1,0 +1,4 @@
+- Locker room - plant as curator of light via photosynthesis - and coming up with sections from various artists that deal with ecology. Also XR as invisible spectrum.
+- Audio as way to reshape feeling and materials.
+- Zyro tutorials
+- The [[Amasian Biennale (Amasia.live)]] - immigrants emails.
