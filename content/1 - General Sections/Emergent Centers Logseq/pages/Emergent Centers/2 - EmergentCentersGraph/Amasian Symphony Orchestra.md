@@ -1,0 +1,2 @@
+- The [[Amasian Symphony Orchestra]] is founded on the idea of [[Amasia]] which is the coming Neo-Pangean super-continent.
+- It is affiliated with the sonification of the [[Geothermalpedia]].
