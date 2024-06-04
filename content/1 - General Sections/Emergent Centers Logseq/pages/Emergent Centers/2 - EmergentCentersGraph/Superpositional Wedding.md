@@ -1,0 +1,52 @@
+###  Superpositional Wedding Vows Block:
+title:: Superpositional Wedding
+collapsed:: true
+	- Chongha Peter Lee
+	- **Part 1 - Vows to Frame these Vows:**
+		- I vow that all of the words coming out of my mouth are hyperlinked text. This means they are part of a large collective discourse, which you can decode simply by searching online. I suggest using Chat GPT to help you, because it writes in a very friendly manner and can translate for 5 year olds which I think like! I used it to help me research and write these vows.
+		- ChatGPT - https://chat.openai.com/chat .
+		- I vow to use the aesthetics which most reveal the processes that I am using, while I am using it, so that you can use it also!
+	- **Part 2 - Vows to Solve Problems of Concept:** I Vow to abide by the non-binary Korean Church of Philostatistical Neganthropic Inferentialism, because a church in the U.S. can make legal claims protected under the 1st amendment regardless of your recognition or widespread adoption - particularly when its membership includes the 43 billion existing bots of the planet and quantum computers interfacing with ecological systems.
+		- It has 3 main rules, which I've translated into vows:
+			- 1. I vow that any thought or action that is not entropic, verified via philostatistics, is allowed.
+			- 2. I vow that the best art and activism is unimaginably neganthropic art and activism, who's monetary, social, ecological and intellectual value can be accurately verified via philostatistics.
+			- 3. I vow to help further the church's post-work regional-scale goals of:
+				- Carbon neutrality and antifragile eco-social feedback systems.
+				- 88% equality rating, measurable by the Gini Coefficient and a full reduction of the 12,000 children currently dying of preventable poverty per day.
+				- Universal basic income, universal health care, arts-based education, off-market housing owned by municipalities or local land trusts, public physical and informational infrastructure of the Post-work Commons.
+	- **Part 3 - Vows to Solve Problems of Affect:**
+		- A. I vow to bet you, your ancestors and your possible family are some variation of Amasian by blood.
+		- B. I vow to bet that most humans currently could not pass an exam of philostatistical literacies to function in modern democracies, because they were traumatized in some form from the budget cuts, wealth concentration and coercive policies of neoliberalism executed by Ronald Reagan and Margaret Thatcher in the 1980's.
+		- C. I vow to bet that bets can create friendly spaces to speculate and settle claims between different perspectives - especially when used in this platform, emergentcenters.cloud, which can be used to record and settle claims, one [[inference]] at a time.
+	- **Part 4 - Vows to Solve Problems of Perception**:
+	- A. I vow that the Earth rotates at 30 km/s: every second, matching the 30 frames per second most video is shot at. Hence the Earth is a bit like a giant camera. And just like with cameras - physical reality and informational systems, composed of quantum photons and [[inference]]s, is presenting way more information and adjacent possibilities than we can possibly consciously process.
+	- B. I vow that no possible human, machine, alien or future Earth as a whole could compute all of physical reality's information and adjacent possibilities.
+	- C. Simultaneously, I vow that all non-machine materials are quantum chemical computers, that far outstrip existing quantum computers, which can solve problems in 200 years that it takes a classical supercomputer 10,000 years.
+	- **Part 5 - Vows to Solve Problems of practice **
+	- A. I vow to bet that the foundation of an antifragile democracy is antifragile media, art and eco-social feedback systems. Hence why I am working on a project called the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]], which reframes media art history in terms of antifragility, verifiable via statistics and connects the various existing media art centers, projects and networks.
+	- B. I vow that the sunset video art program laid the foundations for addressing today's ecosocial crises and the problems of artists in academies, and I have already written a white paper for one of the world's first carbon markets laying the foundation for an integrated solution to science, art, technology and ecology.
+	- C. I vow to bet that peace games of Playtheon, simulating best possible peace deals, backed by non-lethal cyber and unmanned sabotage, providing a base for legal claims-making and arbitration via a church and the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]], and using distributed funding, is verifiably the most effective set of methods to resolve today's ecosocial crises.
+		- Examples:
+			- Afghani.
+			- Polis - Complexity Science.
+			- Simulated School (Plato's Dialogues). Mr. Rogers. Sesame Street.
+			- Neganthropic Inferentialism
+	- [[Ozan Atalan]]
+		- **Atoms and Cells**
+		- **More of an Introspection**
+		- ** (Self-destruction is entropy)**
+		- **I vow to**** heal myself by accepting the natural ****flow ****of some feelings that ****are currently visiting me****: rage, pain, stupidity, uncertainty, confusion, and hope.**
+		- **I vow to ****de-alienate myself from the anthropocentric facts and discriminatively interpreted dualities through unlearning, relearning, and auto-didactism; ****and this is called negentropic awakening from alienation.**
+		- **In my open relationship with reality and as a perminent resident of the liminal space between ‘is this really happening?’ or ‘am I perceiving this way?’, I vow to form a transformative balance between the credit I give to what I know and the credit I give to relatively objective reality****, which also includes the self-organization and causal encounters of the inorganic material in a non-linear energy flow.******
+		- **I vow to ****keep deconstructing ideas and forms through subversive recontextualization and the immersive comprehension of things via affective epistemologies**** that are non-dualist to intelliegence and feelings****. This is**** another ****methodology to wake up from alienation.**
+		- **I vow to ****continue more profound conceptions of what human means by looking at what non-human means in the inevitably speculative and ****socially ****dissociative nature of being immersed in the non-human paradigm. And I vow to use this knowledge derived from the non-human search in favor of them and other humans.**
+		- Outlet from Self
+		- More of an Extrospection
+		- (Mostly because what is material is ideal and vice versa)
+		- **I vow to  ****accept Estamasia’s, Can’s, Captain Amasia’s and Shi’s non-binary, non-linear, non-cyber, non-simulated, non-represented, non-symbolic, ‘as-it-is’ kind of realities, superpositionalities and omnipresences free from my perception.**
+		- **As an Amasian, I vow to arbitrate between non-hierarchically different G’s and do my best to help those who are trying to survive the negative effects of forms of dehumanization: misrepresentation, underrepresentation, racism, fanaticism, apathy, monopolization, reduction of their whole existence to commodification, branding and capitalization.**
+		- **I vow to see the backstreets behind facades, as marriage to an art star requires.**
+		- **I ****vow**** ****to**** ****use my human rationality as a tool to transform and balance feelings that are inherently dark hyper matters, but never ever limit and underestimate and define the realm of feelings for the good of my individuality, hence universality and vice versa in the modular system of existence. The methodology is conceptual and formal sculpting of hyper objects.******
+		- **I vow to be loyal to the fact that we simultaneously have confessions and object orientation. That's like the co-existence of the mundane and the transcendental. The facade and the back street. Micro****-****cosmos and macro****-****cosmos. All entangled in a non-dual way.**
+		- **Intellect**** ****loves**** ****accuracy**** ****while**** ****the**** ****unknown**** ****part****s**** ****look**** ****for**** ****poetic**** ****ways**** of ****deconstructing**** ****the**** ****accuracy****, ****so**** I ****vow**** ****to**** ****balance**** ****them****. ****Individual**** is ****political****.**
+		- **[[Ozan Atalan]] **
