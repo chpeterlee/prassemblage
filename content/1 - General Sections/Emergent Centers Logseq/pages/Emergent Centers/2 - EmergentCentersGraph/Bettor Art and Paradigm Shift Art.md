@@ -1,0 +1,8 @@
+- ----- 1. Conceptualization:
+- [[Bettor Art & Paradigm Shift Art]] - refers to the practice s of scientific communities, military generals and various mythical and fictional characters to use wagers with or without standard currencies to debate the accuracy of specific [[inference]]s.
+- ((dc99c5fa-5952-4a2d-8fbb-2daac746921a))
+- “Bettor Artwork: Bets on Co-ops and Advocacy for Universal Basic Income, Health Care, Arts-based Education,  Maximum 20-hour Workweeks, Paradigm Shift Art and Inferential Military and Indigenous Extralegal Authorization of Botnets, Bettor Art, Quantum Simulators and AI  to Implement All of the Above on an Objective Mathematical Basis” 2022
+- ((0ccd0695-0464-418d-9dca-77529caea3d3))
+- ((efd17d41-2c40-4bc6-992f-08f2fdec7c1e))
+- ((2b36face-fbdc-4abb-8ee7-c7f4201952e0))
+- {{embed  ((((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))))}}
