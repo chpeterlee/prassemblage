@@ -1,0 +1,1 @@
+- A [[Neganthropizza]] is a visual metaphor for a [[net negentropic]] [[Assemblage]] of [[inference]]s. Upon consumption, a [[Neganthropizza]] will trigger a [[net negentropic]] transformation in the consumer.
