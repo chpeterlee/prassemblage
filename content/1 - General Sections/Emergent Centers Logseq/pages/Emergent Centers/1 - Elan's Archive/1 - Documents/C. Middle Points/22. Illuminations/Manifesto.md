@@ -1,0 +1,5 @@
+- [[Autodidactic Universe]]
+- Thunder, Perfect Mind
+- Protennoia
+- Immanence is immanence to itself
+- The Dragon King of Amasia, speaks of its own wounds
