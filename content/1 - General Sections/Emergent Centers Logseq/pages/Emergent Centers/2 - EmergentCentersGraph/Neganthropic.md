@@ -1,0 +1,3 @@
+- on [[April 6th, 2023]] you used [[Similar Pages extension]] to link Neganthropic to [[net negentropic]]
+- on [[April 6th, 2023]] you used [[Similar Pages extension]] to link Neganthropic to [[Antifragility]]
+- A neganthropic is a physical or informational [[Assemblage]] of [[inference]]s, which produces a [[net neganthropic]] transformation in the receiver. [[Neganthropic]]s can be mixed into various dosages for various individual receivers.
