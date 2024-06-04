@@ -1,0 +1,1 @@
+- The [[Universal Attractor]] describes a probabilistic tendency over an arbitrary timescale that all photons of the universe obey.
