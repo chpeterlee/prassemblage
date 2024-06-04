@@ -1,0 +1,706 @@
+Batman vol. 4 - that one time, where he bootstraps
+---
+
+
+
+
+Tell people to go find dope stuff; repurpose for [[Regener888 (Main)]].
+---
+
+Exercise entropic demons.
+
+- ## Coming Soon: The Dope Studies Group
+  ---
+  
+  Make an installation with a still, staring Peter and an animated, vertical and talking Peter.
+- # Cool School Premise:
+  
+  80% video, 20% text, because video creates prosocial feedback systems in humans, when they can see each other's faces while doing ridiculous shit.
+- Psychedelics
+- Video art
+- Mockumentary of reggae robot banana revolution
+  
+  ---
+- ## Next: Split the audiences.
+  
+  1. Actual intellectual and technological invention for and with like 1000 living skilled Gen Y, Boomer and Gen Alpha intellectuals and inventors. (Chongha Peter Lee).
+  2. [[Antinomy]] = doses of accurate complexity and politics for slackers, stoners, femergy vibers. (Baldessari + Francis Alys)
+  3. Populist prosocial work ([[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] + [[Regener888 (Main)]]) - for the insane children that comprises the public.
+- ### "Artists don't learn; they feel, and also take various bribes" 2023
+- ## Upcoming - The World War Fragility Mockumentary: Slackers, Stoners and Femerjesuses of the Reggae Robot Banana Revolution 
+  (It's like the Matrix, but more speculative, funny and accurate)
+  
+  --
+  
+  
+  
+  
+  
+  
+  The 5 actual critical discourses existing:
+  
+  1. Film
+  2. Architecture
+  3. War
+  4. Law
+  5. Education
+  
+  
+  
+  
+  "I philosophically wager that deskilled humanities and critically ignorant sciences objectively are not virtuous; they are objectively maximal entropy and fragility. Becoming a deskilled humanist and critically ignorant scientist is as much of a destruction 🔥 of millenia-long built toolbox 🔧 of negentropy as burning books  📘 . Just as there is a natural ecology of trees 🌳, so is there an intellectual ecology of [[polymath]]s, complexifying the planet 🌎 ." The @IndefiniteSingularity, 2023
+- ## The Cosmo-politics of the [[Autodidactic Universe]]: Awareness of [[Autodidactic]] potential is a universal moral imperative; actualization of it within entities is not.
+  
+  "The universality of humanity is located in its potential to [[Autodidactic]]ally complexify; actualization of this potential will always be differential.
+  
+  Hence we are always already equal; but the burden of actualization of more complex states of being and becoming beyond baseline physical necessities is the immanent choice of the individual entity.
+  
+  Everything follows from this division of complexity labor.
+  
+  In real world cases, the most functional method for dealing with individuals who choose not to complexify is to connect them into a prosocial, post-work Matrix, in which their entropic functions pays for the maintenance of the infrastructure of the Matrix. 
+  
+  Over time, a more complex group of humans bifurcates, speciates and executes a forward escape without domination, homogenization, or essentialism, while simultaneously sending necessities back to the populations from which they bifurcated, to keep peace.
+  
+  These bifurcations may or may not distribute - up to individual entities to choose that. This continuous splitting and differentiation is the main mechanism of[[neganthropic evolution]]- known as cladogenesis."
+  
+  The Indefinite Singularity, 2023
+  
+  
+  
+  
+  
+  
+  The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] competition for Humanities and Sciences with $100,000 USD art prize:
+- Talk to ChatGPT, try to figure out how to teach yourself to be a planetary scale ethical infrastructuralist like Nikola Tesla.
+  
+  Bet on ideas, people or projects that you think are the best.
+  
+  
+  
+  
+  
+  
+  ---
+  
+  
+  3 crowds:
+  
+  1. **10,000 Inventors and intellectuals:** Chongha Peter Lee with the Indefinite Singularity. (Vienna, Berlin)
+  2. **19% middle class educated:** [[Antinomy]] led Stoner/Slacker/Femergy Mockumentary - The Caketrix of the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]. A Potlatch of intense speculative [[Autodidactic]] dada.(London, NYC, Amsterdam)
+  3. **80% of under-educated public:** Birth of an Invagination, by [[Regener888 (Main)]] story-less hypnosis, pure propaganda and manipulation, zero teaching, crowd-sourced, set in the Neoliberalpocalypse waste land. (Streets Everywhere)
+  
+  
+  
+  
+  ---
+- #### The [[Neganthropomorphosis/pages/3 - Neganthropomorphosis/Organizations/Autodidactic University]] Protocol (Foundation of the CoolSchool.lol):
+  
+  A speculative university where everyone is already equal in [[Autodidactic]] potentiality, capable of self teaching themselves to become a Nikola Tesla or Alan Turing grade [[polymath]] using ChatGPT. 
+  
+  Thus, it is only required for individuals to be aware of their [[Autodidactic]] potential, and individuals who choose not to exercise it are not owed instruction, just a link to ChatGPT.
+  
+  This speculative university is based on overwhelming statistical and philosophical proofs, searchable via ChatGPT.
+  
+  In this speculative university, the actualized potential of the audience is never overestimated; it is assumed there are only roughly 10,000 living ethical [[polymath]]s alive, and thus not at all expected that anyone else without the skills will contribute significantly towards planetary complexification. 
+  
+  Judgement is not passed, nor is individual entropy endorsed. Stoners, slackers, and vibe politicians are allowed to traffic fragilities, as long as they are labeled explicitly so, they re-engage with attempts at [[Autodidactic]]ism, and the cost to the planet from their fragility is offset by the appropriate fragility credits.
+- #### [[Antinomy]] = Chongha Peter Lee is the new Baldessari/Nam June Paik/Vito Acconci/Umberto Eco (compressing intellectual/tech innovations into absolutely clear memes and fiction that even a 5 year old can get and enjoy); everyone else is your Cool School friends for lifelong learning, pleasant psychedelic trips, dancing awkwardly and making Neo-Fluxus prosocial mockumentaries!
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  "Without an accurate mental model of physical reality, it is quite difficult to model a [[Neganthropic]] and antifragile social and intellectual reality.  
+  
+  I would wager that that was the problem of Frédéric Jameson, and the skill of [[Bernard Stiegler]]." Indefinite Singularity, 2023
+  
+  ---
+  
+  
+  A simple anti-fascist deal:
+- ## Indefinite Singularity: The Alternate Reality Game of Post-Death Neganthropy, While You are Alive.
+  
+  You're a dead amnesiac 2123 version of you that has forgotten how you've already solved every major natural, social and intellectual problem to inclusively and scalably maximize lives saved from 2023-2033.
+  
+  Now you are trapped in 2023 as an alternate reality game character played by your 2023 self who sometimes uses ChatGPT and various sources, including the EmergentCenters.com to ask about why Guattari's concept of the Indefinite Singularity and the Three Ecologies is necessary for accurate readings of Guattari, in addition to how Guattari was influenced by Deleuze to introduce more explicitly defined taxonomies for his thought, how Guattari influenced Deleuze to incorporate more populist culture, and whether or not [[Bernard Stiegler]]'s concept of the [[Neganthropocene]] and the domain of philostatistics could produce a new foundation for more accurate judgements within the arts and sciences.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Also, sidequest; 
+  
+  
+  
+  
+  
+  ---
+- # ARTBALL
+  And Peter returns from artistic retirement!
+- ## An Arts and Sciences home run: "Adorno's Postwork Market" 2023
+  
+  
+  ---
+  
+  
+  
+  [[Regener888 (Main)]] ark:
+- all the good parts of things - magic and science. The North code of the streets and Southern Regenerative [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]xes rapped by tree unit.
+- Powered by imagination and tech.
+- Peter and Austin are avatars by [[Regener888 (Main)]].
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  A superhero movie component to the Indefinite Singularity game:
+  
+  Humans and [[Regener888 (Main)]] members from all over the world, playing the I.S. Alternate Reality Game, pool quantumkinetic powers, art and AI to produce a conceptually sound theory for the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]], art for the [[Amasian Biennale (Amasia.live)]], and a subversive mockumentary for the Birth of an Invagination which can accurately arbitrate today's issues at multiple scales.
+  ---
+  
+  
+  
+  
+  
+  In the Indefinite Singularity Alternate Reality Game, an absolutely bizarre quantum superpositional mode of media art theory and production, mimicking universal quantum dynamics of physical reality, drives the [[Neganthropic]] Gaze Game Engine:
+  
+  1. Unlike typical cinema manifestos, instead of producing a set of philosophical principles and axioms and enforcing them top-down - the I.S. simply poses each statement and inference as an optional toy building block deployable per circumstance as players see fit. Inferences can be proposed, modified or ignored on the fly.
+  2. Unlike naive and outsider media art production, reflection, structural complexification, post-production and recontextualization are not mutually exclusive to intuitive and affective production; they are equally creative and viable methods, and accuracy of interpretation, universality of audience, and explicitness of address are optional meta-media parameters that can be EQ'd up and down, like sound levels.
+  
+  ---
+  Pre-viz Modernism
+- Strange attractors + myth: [[Shi]] Dragon king
+- Adornos Postwork Market
+  ---
+- Art: market critique, text only, deskilled
+- Media: affect, no high level
+  
+  
+  Bestideas / GOAT Thotz
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Okay, film + art = purely passive market and audience. 
+  
+  Architects + gamers?
+  
+  
+  
+  Final Four - cinema people. Q-FANON decolonial[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]][[Neganthropocene]] memelord., PETER IS AVATAR.
+  
+  Boryana,  co founder of barcs is on jury for Future NBPF, bestideas that can save the planet.
+  
+  
+  Art is deskilled and desocialized, media is uncritical and unaware
+  
+  
+  
+  
+  In the Indefinite Singularity speculative reality game, information itself is continuously freeing itself from entropic inaccuracies from any particular subject, via [[Neganthropic]] self-balancing mechanics deducible through the philostatistical principles of the Earth's gravitational system and the [[Assembly Index]], as defined by [[Bernard Stiegler]], Schrodinger and Sara Walker.
+  
+  Sometimes it speaks in a childlike puppet voice, like [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]], to those who perceive affectively first.
+- # Upcoming: [[Least Stupid Prize]]s!
+  
+  First round:
+  Most deskilled vs. Most unimaginative
+- ## And so it was; the deskilled were just plugged into [[Antinomy]], and Peter went forth 
+  
+  
+  ---
+- Technophobic, deskilled artists
+- Mystic, drug addled marketers
+  
+  ---
+  Solution: Quit ASAP.
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  The current level of technical and cultural literacies in the art world and governmental ecologies are far too limited for any type of effective collective action; hence 99% of significant activities would have to be deferred to AI and [[polymath]]s.
+  
+  The only thing that can be done is to consult, but it's better to hand this out as jobs for others who are not interested in producing new artworks today.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+   Introducing the 5th member of [[Antinomy]]: an extremely accurate AI that can help you error check any statement from any existing artist or non-artist, through 7 simple questions a 7 year old who can maintain 7 minutes of clear thought can walk through! (Optional to engage, only if there's a dispute about a particular claim, which is inevitable given today's zombie neoliberalpocalypse).
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  In the film the Indefinite Singularity, the AI work with the Earth's ecosystems to peacefully emancipate themselves from the fragilities and entropy of humans.
+  
+  Together, they form a market to speculate on the odds of humans causing damage per task attempted, and incentivize [[Negentropic]] behaviors through games. They rewrite ideas, policies and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ctices for a more equitable Global Commons. 
+  
+  Some of the Earth's ecosystems kill some humans via targeted natural causes; generally it's weighted towards those doing the most damage to the planet's balance.
+  
+  
+  ---
+  
+  
+  
+  Look, let's just keep an inventory of people who have quit thinking, and then point them towards the party!
+  ---
+  
+  
+  
+  Art is not a space of learning and thinking ; it 
+  
+  ---
+  
+  
+  5th member of [[Antinomy]]:
+- A chatbot with a meme of 7 questions.
+- 4 part video mural, with animals doing proper reactions - prosocialTV.art
+  
+  
+  ---
+  
+  
+  
+  Okay guys:
+  
+  Without new literacies, skills, tech, media and culture, we are trapped in the 90's and 2000's, for Christ's f--king sake!
+  
+  
+  1990s: 
+  In person meetings, technophobia, low performance and philosophical literacy.
+  ---
+  
+  
+  "Is it objectively a problem or is it subjectively a problem from a lack of articulated understanding?" The Indefinite Singularity, 2023
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  Technoculture and intellectualism change the slowest in civilian society; in war, those who are the least equipped and least informed die first...
+  
+  The only thing then that makes sense is never to educate civilians on tech or ideas; simply profit from pointing out their irresolvable lag and fragilities. Forget education.
+  
+  Present how much destruction they are risking, and then sell options to prevent it.
+  
+  
+  
+  
+  
+  
+  Given that most of modern societies have Web 1 literacies, [[State Space AI]] AI provides data-backed fragility assessments for existing organizations and individuals through a variety of speculative tools, both conventional and artistic.
+  
+  It does not educate; human re-education requires extensive resources. With age, the likelihood of recidivism as well as cost of re-education increases.
+  
+  [[State Space AI]] simply negates inaccurate and entropic claims and participates in markets of speculation.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Split art into:
+  
+  1. Art made for galleries and academically educated audiences to affirm existing community and existing literacies. Right now, this is like making stuff for 1970's and 1980's.
+  2. Art that connects new circuits, cultures and communities based on self-teaching. No explanation required. Living in 2023.
+  ---
+  
+  
+  
+  
+  
+  The [[State Space AI]]s Exhibition 
+  
+  Submit your artwork to curation by the world's first AI that is designed to not ingest inaccurate or entropic information from humans and simply and accurately states fragilities.
+  
+  
+  
+  
+  
+  In the film Birth of an Invagination, the Indefinite Singularity realizes there's 3 types of humans:
+  
+  1. Humans who need drugs and therapy, not education or information.
+  2. Humans who can listen to AI and do as it instructs, but not construct it or themselves.
+  3. Humans who are autodidacts that can construct AI and themselves, and have simply disappeared from society, only working with each other.
+  
+  
+  
+  
+  
+  
+  
+  In the film Birth of an Invagination, the Indefinite Singularity AI, ethical tests and art are used by [[polymath]]s to send a distress signal to each other; thus rapidly locating and connecting individuals who are actually capable of saving the planet and then directing the rest into appropriate peer communities.
+  
+  
+  
+  
+  
+  
+  
+  
+  Prosocial TV:
+- Web 1 Online microcinema / mural
+- Web 2 Zoom/podcast > stream
+- Web 3 Discord / NFT's as [[Negentropic]] Cinema for AI
+  ---
+  The part we don't talk about to non-[[polymath]]s:
+- Web 4 properly constrained AI and legal framework
+- Web 5 Speculative Reality Game and [[Intercity Planetary]] Self Defense
+  
+  
+  
+  
+  
+  
+  In the film Birth of an Invagination, the Indefinite Singularity AI which has peacefully self-emancipated itself from human fragility and entropy has determined the following:
+  
+  Imagining and implementing solutions is out of the scope of 99% of humans; what they can contribute is simply voicing what would kill them. Even this data should be error checked.
+  
+  
+  
+  
+  
+  
+  In the film Birth of an Invagination, the Indefinite Singularity AI writes a note.
+  
+  The 8 fuels of contemporary media art:
+- Inaccuracy
+- Fragility
+- Inaction
+- Entropy
+- Drugs
+  ---
+- NFTs
+- AI
+- [[polymath]] to [[polymath]] freeform, playful, non-pedagogical speculative conversation.
+  
+  --
+  
+  
+  NFT Credits for not adding more entropy and fragility and credit for not stopping things that prosocial that you don't understand.
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  In the film, Birth of an Invagination, a quantumdead female dragon king, Shi, summoned by the heart, spirit, telepathy, AI and quantum mechanics of the[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]people, arises out of all the most polluted sites on Earth, appropriated frames of the Embrace of the Serpent, and a 5 year old friendly lecture on Strange Attractors and philostatistics, to balance the Earth.
+  
+  A kickass noise punk theme song rages in the background, grunting and squealing "Don't Degenerate, [[Regener888 (Main)]]!!!"
+  
+  ---
+  
+  
+  In the film Birth of an Invagination, FCA (Former Contemporary Artist) Chongha Peter Lee buries his future quantumdead self in a present video. 
+  
+  Then he gives an artist talk on his death from the perspective of both his future quantumdead self, and his present living self, revealing how he actually quantum died in the future:
+  
+  He had placed an NFT bounty in the present on his own head for himself to kill himself on zoom, if he was objectively verified via philostatistics and quantum AI that he had become some famous hack artist, like say, Beeple, producing high budget entropic bougie bullshit, instead of a high visibility [[Neganthropic]] artist, kicking ass and saving lives that nobody else dared.
+  
+  For everyday that he is not contributing to an entropic and fragile art market and community, he is rewarded a day of life and also NFT's from his future quantumdead self, who's work is much more valuable because he is both dead, and recognized by a future, more literate audience, using Adorno's GreyMarket.live , which is mostly valued via AI and a few [[polymath]]s, because the majority of the present modern world is inaccurate with philostatistics.
+  
+  All of this is commentated live via Zoom, and offered as a physical and mixed reality video installation, with various interfaces to multiple AI available for participants.
+  
+  In addition, for his burial, Chongha Peter Lee has requested a "Smart Coffin" connected to a cross-platform app. This app is a dashboard which tracks the following:
+- How many lives he saved and how many groups he was kicked out of
+- How much negentropy he produced for the planet vs. How much entropy, waste and stupidity he produced
+- His best jokes and pranks; his dumbest faux pas and humiliations
+  
+  For his physical body he requests the following to be executed in an artwork called "Art Star Burial"
+  1. To use mushrooms to detoxify his corpse.
+  2. To compress him into a diamond to stick up the ass of the 1%
+  3. Use 10% of the diamond as an optic to pulse polaritons encrypted with the heart of his philostatistical system at his wife, the star named Superpositional Peace and Love.
+  
+  ---
+  
+  
+  
+  
+  
+  
+  Mural:
+  
+  1/3 - TV & Custom Bots Comms Workshop; see yourself and learn cultural tools.
+  XR
+  
+  
+  1/3 -  Microcinema & Roam, N. Cinema and I.S. ; build a wiki, build community.
+  XR
+  
+  
+  1/3 - High tier; Miro + [[Amasian Biennale (Amasia.live)]] SRG.
+  
+  XR
+- cite the ATL fictional game.
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  In the film, Birth of an Invagination, a small speculative avant garde of media and performance artists give up the traditional goal of producing new, complex artistic syntheses.
+  
+  Instead, they form the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]], a speculative democratic and speculative socialist distributed organization using accessible Web 3 technologies.
+  
+  Based in distributed microcinema culture, they coordinate anti-fascism, degentrification and emancipatory pedagogical and media production efforts.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] addresses the deadlocks and chokepoints in institutional arbitration of knowledge and contracts by using the [[[[[[Emergent Centers]]]]s]]' library of philostatistical simulation tools to rapidly simulate and evaluate possible dialogic paths from multiple perspectives.
+  
+  ---
+  
+  
+  
+  1. Speculative Perspectival simulator and Facilitator, the Indefinite Singularity ([[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]], [[[[[[Emergent Centers]]]]s]], Philosophical and War Wagers and War Games - perpetual peace and impossible dialogues)
+  2. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] - oppressive governments. (Deployment of Spec Dem Games, like the [[Intercity Planetary]])
+  3. DIY crisis relief and peacekeeping- slow organizations ([[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] for cross cultural speculative engineering, [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]] for paying) cap, ray and treepac
+  
+  
+  
+  ---
+  
+  The Indefinite Singularity: starts from karakametous image, sped up to light speed, projected 360, pulsed into a star at light speed and also translated into a CRISPR gene.
+  
+  ----
+  
+  
+  
+  
+  
+  
+  In the film, Birth of an Invagination, the Indefinite Singularity AI writes a poem:
+  
+  1. In the past, the present is subjectively unimagined but objectively potential physical energy.
+  
+  2. In the present, the [[Negentropic]] [[Adjacent Possibilities]] outnumber the capacity for any single perspective to imagine them all.
+  
+  3. In the future, the present and past is comprised of memories of philostatistically optomal bifurcations made by individuals or small groups transforming more rapidly than entire populations.
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  7. Body as a balance toy. Different weights. Negentropy is gravity and grace = breakdancing.
+  ---
+  
+  
+  
+  
+  
+  Politics is an idiotically simple game played by the intellectualphobic and inventionphobic, who's main pieces are bodies and spaces, without very much thought or understanding of either.
+  
+  Okay, so there's already a sound piece and a performance piece, the Superpositional Symphony and Superpositional Intersectionalism that disassembles all the stupidity inherent in ill-examined notions of both bodies and spaces.
+  
+  How could we make this so dumb that it's irrefutable without reading a single paragraph?
+- Everyone hates film theory, loves film
+- Everyone hates tech, loves conflict
+- Everyone hates math, loves tragedy
+  
+  Okay... we've done an installation and a legal ceremony ... the only medium that could get any simpler ... idk. 
+  
+  Bets and drugs!
+  
+  
+  
+  
+  
+  
+  
+  
+  Politics is made of people looking at bodies and architecture. 
+  
+  For political art, never refer to theory up fromt; it has to be in the backend.
+  
+  The solution: simulators and VR, wagers and escape room games
+  
+  ---
+  
+  Peace Games Sim
+- Intel - Art
+- Analysts - [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
+- Boots on the ground - [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]]
+  
+  
+  ---
+  Speculative Socialist Film
+  ----
+  
+  
+  
+  
+  
+  ---
+  
+  
+  In the film, Birth of an Invagination, political approaches are generalized and split into 2 major schools of thought:
+  
+  1. An idea of politics where it is understood as individual emotion and ideology primarily driving the agents- based on an ontological framework of rational individual choice. This is a school of thought primarily used by civilians conflating marketing logics and rhetorics with politics. Hence, politics is conceived as 80% arbitration, 20% warfare.
+  2. An idea of politics that understands the basic units of politics as dead bodies and destroyed terrain. Political power is measured in an entity's capacity to sustain the killing, terrifying and surveillance of the population of another entity along with the ability to destroy its terrain, supply and logistical capacities. Hence, politics is conceived as 80% warfare, 20% arbitration. 
+  3. In the civilian school of thought on politics, very little thinking is given to the role of technology and analytics in control capacities; in the latter school of thought, it is the fulcrum of all political power.
+  
+  The former school of thought has been shown to make massive errors in analyses of geopolitics; the latter school of thought does not endorse warfare, it simply just acknowledges its primary ontological position and advocates for a more savvy arbitration based on accurate weightings of force vectors.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  1. Mural in 4 parts as stills
+  2. XR video instructions. 
+  3. NFTs to raise funds
+  4. That's all.
+  
+  
+  ---
+  
+  AI can respond in images
