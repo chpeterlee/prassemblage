@@ -1,0 +1,1 @@
+- Refers to the [[Universal Attractor]]'s capacity to produce a [[paradigm shift]] from any point in the universe. In direct reference to the [[Neganthropomorphosis/pages/2B - EmCenOrdered/1 - Knowledge/Facts/Autodidactic Universe]] paper.
