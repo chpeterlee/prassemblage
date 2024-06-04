@@ -1,0 +1,1 @@
+- "accurate" refers to the technical definition of describing the degree to which the result of a measurement, calculation, or specification conforms to a defined value or a standard.
