@@ -1,0 +1,1 @@
+- The Future Nobel Peace Prizefight is a $100,000 prize for anyone in the present who can be philostatistically verified to produce solutions in the present to save future lives.
