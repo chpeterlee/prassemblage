@@ -1,0 +1,144 @@
+- logo ideas
+	-
+	- {{iframe   ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FPlanetary_Research_Assemblage%2FvcWNI6oYap.png?alt=media&token=d97bc964-42fe-44fa-b951-7d96175d8189)}}
+	- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FPlanetary_Research_Assemblage%2FRkv01FUIyy.png?alt=media&token=83d77725-81da-4b23-9f39-c9dbecf77985)
+	-
+- conversation between [[@Jon Perez]] [[@Peter Lee]]
+	- Miro Board
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FPlanetary_Research_Assemblage%2FIdt1Wc1J2d.png?alt=media&token=ff33303a-667f-4fa7-8cc2-ab0c99f614ea)
+		- {{iframe  https://miro.com/app/embed/o9J_kl0RGIw=/?}}
+	- [[general intelligence agency]]
+		- [[Intercity Planetary]]
+		- - Rural / semi-exurb [[interzone]] - Edgar Endress (working on an exhibition)
+		- - Suburban / Local Municipalities - Fairfax - Foodie/service industry culture/independent cafes & coworking spaces. Lots of immigrant small business networks.
+		- - 2nd-tier Inter-capital/metropolitan areas (Syracuse, DMV ... Bogota .... Vienna, Austria) - Ben Ashworth - working with DC cities - skatepark under a bridge spot - equitable spaces with city planners (subway station takeover) ()
+- Arts/humanities networks within international port cities (Don Russell runs Provisions Artistic Research Library - knowledge production middles)
+	- New S.A - superpositional network.
+	- **[[Goals]]**
+		- 1. [[Cultural Spine]] (inter-segmental motion for the [[intercityplanetary]]
+		- 2.[[information]] to move across #[[levels of society]] [[@Rodrigo Carazas Portal]] in Kansas City, Missouri
+		- 3. 4-part mixer - individual scale, social scale, city scale, planetary scale
+		- 4. [[airlocks]] - safe transfer of information. Utilizing [[already-existing]] [[socio-informational-culture structures]] (A Thousand Plateaus)
+		- 5. Dreamcatcher - the lightness of a spider web - maximal [[transversality]] sensor system
+			- spider web as exteriorized nervous system
+			- [[Concepts]] as __circumstantial pipes__ - not [[laws]] or even [[Tools]]
+			- [[philosophy]] as spider silk / dream catcher
+			- [[percepts]] as probability play (multiple angles of tinkering simultaneously to get communicate possible affects)
+			- [[general intelligence]] - redefine it in terms of multi-perspectivality (physical reality is an infinite buffet [[assemblaging]] - negate "1vs1" and "[[transcendence]]"
+			- old [[definition of]] [[general intelligence]]/ [[general intellect]]
+				- Old definitions: [Marx]([[Karl Marx]]) - defines it as a triad of conceptual, social and tool-based intelligence.
+					- This also parallels D&G's concept/percept/affect. AND - plato's true/good/beautiful.
+				- Neotenic, [[assemblaging]] as ((Dreamcatcher - a conversation is about the novel re-assemblage of [[possibilities]] itself, not "transmission")), [[threshfolds]] ([[Time is Neotenic]])
+				- Deleuze calls it "the [[living present]]" - he also describes the logic in "The Pure Game" - the [[affirmation of chance]] - the motion towards [[the generic]].
+				- Call this motion [[assemblaging]]- exquisite corpse. No particular part is necessary. ([[Edward P. Butler]] - [[henadology]] - philosophy - conversational [[philosophy]] as creative tool. This activity we do as artists - [[assemblaging]] ideas.
+				- We should throw away [[critique]] for the majority of the [[Intercity Planetary]] understanding of [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/art]].
+					- [[critical art]] should be reserved for top-tier international city scale arenas where the image and signs significantly affect large physical flows. There are probably only ~1000 artists who operate at this scale [[Venice Biennale]].
+					- ^^Once we articulate this scale - [[social practice ]] actually becomes incredibly useful, positive and pertinent^^
+					- ([[Culture]] as a [[pipe]])- at the scale of [[localities]], [[municipalities]] and [[ruralities]]. [[Jon Rubin]] did work where he intermixed products between different immigrant business communities. New commerce flowed.
+				- Laruelle DTLI (waiting for new information/another throw of the dice) as always good [[Ethics]]. Fits with [[Edward P. Butler]]'s [[Ethics]] of [[articulation]].
+				- Articulate that limitations on possibilities are based on [[subjective]] [[computational limits]] - not [[objective]] [[physical limits]].
+	- Audience: ==
+		- [[0. Noteb]]. [[general intelligence]] exploring artists [[@Matt Nolan]] [[@Thomas Stanley]]
+		- (synthesis)(Line of [[generalist history]])
+		- [[1]]. ****Humanities Dept**** ([[mid-tier cities]] across [[the planet]]) (family friendly)
+		- [[2]]. [[tech]]/[[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/media]]/[[nonprofits]] [[biz]] ([[immigrants]]) + community organizers
+		- [[3]]. Cafes / co-working spaces / small independent businesses
+		- [[4]]. [[DIY]] scenes / [[youth culture]]
+		- [[5.]] Travellers
+		- [[6.]] Mediators
+	- Past: Contextualize last 20 years movements of culture
+	- Present:
+	- **Our Position:**
+- [[consilience]]
+	- ([[consilience]])
+	- ([[compossibility]])
+	- [[convergence]]
+	- Differentiate from the New Centre and Market-based Conceptual Art practice s and Research-based Academic Market - and Hokey para-academic
+	- [[philosophy]] - went through total [[atomization]]. Created a trail of [[Tools]] and flexibility and malleability.
+	- [[slip]] - the utility and capacity enabled by [[deconstruction]].
+	- [[encyclopedia of generalist tools]]
+		- [[slip]]
+		- [[jank]]
+			- jankins is positioning of [[threshfolds]] so that it sustains
+				- [[janking]] is not a contunous activity
+				- a precise [[jank]] creates a chain reaction creating a new ecology
+		- [[asignifying]] flow - and the effect of constructing a new mathematical formula. [[Felix Guattari]]
+	- King Sejong invented the Korean Alphabet. Really shows the dynamics involved with constructing [[novel conceptual tools]] - that allows new flows of imaginable possibilities.
+	- Street level - slang often is a conceptual middle that enables new flows of materials. (acoustic matter)>
+	- 3 Levels: [[Imaginable Possibilities]] [[Articulable Possibilities]] [[Material Circulatory Possibilities]]  Aesthetic > Technological > Social
+	- **Scale Voice to reflect scale of idea**
+	- Difference in the use of the aesthetic:
+		- [[external facing aesthetics]]
+			- What we normally understand [[Jean Luc Moulene]]- is a [[compression of]] [[relations]] into a [[form of]] [[novel autonomy]].
+		- [[possibility interface aesthetics]]
+			- I-ching.
+- Feynman's diagrams.
+	- Language.
+	- There's a strain of musical notation ([[John Coltrane]]) ([[Cecil Taylor]])
+	- ^^People misinterpret this as metaphysical. It's not - it's [[diagrammatic aesthetics]].^^
+	- Operates underneath a given timescale to continuously select [[probabilities]] within a designed range.
+	- This connects with [[preemption]] [[operative logics of preemptions]]
+	- Alot of practice s beyond art are involved with this - military planning, [[simulation]], [[Game of Life]], scamming, Trump's performance, children, advertising, apps.
+	- Examples of positive inducing of [[probabilities]]; teaching children. Teacher/salesperson/mediator/negotiator/presentation/artists - sequences [[information]] for diverse receivers.
+	- [[positive individuation]]
+	- limits of tools used to [[Interface]], [[diagram]], [[synthesize]] and [[organize]]
+	- **[[Open Source Universalism]]** - Planetary inter-curatorial Framework
+		- [[1]]. Neotenic [[2]]. Assemblaging of [[3]]. Threshfolds [[4]]. (diagram of probabilistic relations between multiple external entities) into a
+		- [[0. Noteb]].Anti-fragile ((openness to an exterior)) multi-minima Triple Point ((d3cdf586-de0a-470b-95af-d1f699cfbb33)) [[Universal Attractor]] (Flow State/Lucid Dreams/Good Bar-hopping/party night/Fun = good pop culture analogue) (Delightenment) Nightlightenment, Negarestani's Toy Philosophy, Playlightenment = Nirvana/Heaven (not heavy) Use the 5 point star of the PRA, Make a Meme
+		- [[Open Source Universal Art]] (Playful safe [[phylogenesis]] and [[positive individuation]] by any and all means - the test is will it be good for children 7 generations down?) [[Millenial Artists + older networks]] (All hybridizations can fit within this) ([[slip]] as [[image]])
+		- [[Open Source Universal Basic Income Game]] (OSUBICraft) (Kid's, dads and moms team up to figure out how to build various forms of UBI) [[Tik Tok + school programs + performance art]] (Any improvised interaction can fit within this + get people to register for a 1 click app (the strike refridgerator + AI locality arbitrator))
+		- [[Open Source Universal Knowledge & Invention]] (Free the knowledge from patent system somehow - probably automate legal system + crypto + [[Planetary Research Assemblage]]) [[@Matt Nolan]] (All tools / media / etc. can fit within this) (1 quick way around this right now - [[Assemblage Encryption]] is to simply break a [[function]] into multiple parts -- like a spine - so someone can't put them all together and then extract the full process. Funnily, this is also how you can invent things quickly. [[AssemblageVention]])
+			- endpoint is to create steady flow of [[universal ethical tools]] (Aesthetic-scale, Individual-scale, Social-scale, City-Scale, Planetary-Scale)
+		- [[Open Source Universal Ecology]] and Energy (Re-organize all existing parts - Jacques Fresco) (All [[Earth]] activity can fit within this)
+			- - endpoint is to get Geothermal reactors + military as environmental stewards + green collar jobs for poor
+			- Jes Grew + Django (dance/art/music)to commmunicate across hierarchies
+		- [[Open Source Universal Intelligence]] ([[Quantum Chemical Computers]] = Human/Non-human Brains = [[Incomputable Adjacent Possibility]] [[Sam Rohdie]] - the French New Wave - the film/viewing experience/comment are on the same [[plane of immanence]].)
+			- filmmaking as criticism, criticism as a kind of filmmaking
+			- more generic: thinking of the thing is one kind of production
+			- endpoint is to recognize [[imagination]] - understand where it's all heading - artificial planets - aka the [[PRA Core]]
+			- [[TripleCore]] - based on the nascent triple point of all materials. The idea is to bring any given 3 cultural processes to a fluid unknown generic triple point which can evidence individual characteristics of each - but escapes any static state. The core of the [[Earth]] is like this - generating hot black ice in all states simultaneously. (Jankwave/Meshwave/Slipwave) ([[within/of/upon]] itself)(production of [[slip]] from any arbitrary combination of elements)
+	- [[Turing Complete User]] by [[Olia Lialina]]
+		- http://contemporary-home-computing.org/turing-complete-user/
+		- "When [[Sherry Turkle]], [[Douglas Rushkoff]] and other great minds state that we need to learn programming and understand our computers in order to not be programmed and “demand transparency of other systems”26, I couldn’t agree more. If the approach to computer education in schools was to switch from managing particular apps to writing apps it will be wonderful. But apart from the fact that it is not realistic, I would say it is also not enough. I would say it is wrong to say either you understand computers or u are the user.27"
+- ^^"An effort must be made to educate the users about themselves. There should be understanding of what it means to be a [[user]] of an “all purpose automatic digital computing system”."^^
+- "[[General Purpose User]]s are not a historic accident or a temporary anomaly. We are the product of the “[[worse is better]]” philosophy of UNIX, the end-to end [[principle of]] [[the internet]], the “under construction” and later “beta” spirit of [[the web]]. All these designs that demand attention, and ask for forgiveness and engagement formed us as [[user]]s, and we are always adjusting, improvising and at the same time taking control. We are the children of the misleading and clumsy Desktop Metaphor, we know how to open doors without knobs.28"
+- "We, [[General Purpose User]]s — not hackers and not people — who are challenging, consciously or subconsciously, what we can do and what computers can do, are the ultimate participants of man-computer [[symbiosis]]. Not exactly the kind of [[symbiosis]] Licklider envisioned, but a true one."
+	- ************************************************************************
+	- **Total Distillation - Pure Backend : Pure [[MetaReason]] - Secret Society - speakeasy shit**
+	- [[heptagram]] 7 Point Star Update
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FPlanetary_Research_Assemblage%2F_DV_HTnBIc.png?alt=media&token=ffd6a93e-550c-4441-9f56-8fceaa75a650)
+		- http://home.hiwaay.net/~jalison/hepta.html
+		- 7 point list of Hinduism [[Timothy Lavenz]]
+		- 7 Point Ontology from Deleuze in the back of [[Manuel DeLanda]]'s [[Intensive Science and Virtual Philosophy]] Appendix
+		- Religion & Science & Reason - Apollonius, Won-Hyo, [[Proclus]], Platonus, Aztec Metaphysics, Middle Eastern metaphysics, Indigenous mathematics, Nomadic inter-cultures, [[I-Ching]]
+		- They are all dealing with [[The Irresolvable Problem of Probabilistic Design]]
+			- Art, Culture, War, Ecology, Mystics, Communes, Cities, Etc, Hip-hop, Bruce Lee, Cooking, Gardens, Toys, Play, Gambling, Love
+- **7 Dragons Diagram**
+	- 1. (The Dragon of the Real) - Incomputable novel physical [[possibilities]] per second of a single quantum chemical substance generating minimum 2.4 new quantum chemical compounds per second.
+	- 2. (The Dragon of the Assemblage) All actions and thoughts are recombinatorial mixtures of the same quantum chemical substance.
+	- 3. (The Dragon of the Virtual) Any given action or thought will miss 99.9% of the [[possibilities]].
+	- 4. (The Dragon of the Threshfold) Actions and thoughts and assemblages can be poised into "threshfolds" - new self-sustaining combinations of the same universal material which enable new ecologies of new mixtures.
+	- 5. (The Dragon of Ecologies) These can be induced by coding them into information that other pre-existing entities can comprehend. Possibilities are limited by mediating tools.
+	- 6. (The Dragon of Dark Precursors) The most resource-light way is to re-perspectivize another entities' already existing codes of relations. This requires skill, ethics and experience.
+	- 7. (The Dragon of Transgenesis)This starts with a 1-dimensional [[bifurcation]] first ([[phylogenesis]]) - which tinkers into an inter-segmental probabilistic spine (ontogenesis) - heading towards the generic and a new [[multi-minima]] balance of more diverse probabilities through a distributed transduction of both [[interiorizing]] [[Complexity]] and [[autonomy]] (aka learning) and [[exteriorizing]] triple points and growing middles (aka [[flowtility]])) = (universal evolution).
+- [[XenoBloom]] Roam - Building a "Digital Garden" - academic/theory conscious artists, artist curators, couch-surf network, hang out and shoot the shit (No public-facing interface - purely artist network - collaborations will spontaneously arise.) (Theorist/Artists)
+	- Replaces the academic journal as peer networking device. People can take parts and collaborate/publish independently. This is purely a connective device.
+	- The [[XenoBloom]] is made of 4 universal dimensions - 3 dimensions of space and a 4th of Quantum Chemistry.
+	- The dimensions, landscape and creatures of the [[XenoBloom]] react to the [[imagination]]
+	- Each dimension, landscape and creature contains the entire universe within every other part - past-present-possible.
+	- They are all blindly evolving towards ASSC - increasing [[autonomy]], [[solidarity]], sharing and creativity.
+- ^^Anyone can guest feature their Theory-Fiction-Poetry-Media-Performance with no direction, to any degree and to any scale^^
+- They build the [[mythological interfictional world]] (also with existing communities) of the 7 Dragons - freestyle collab. Jon runs it. Peter does tech.
+- Make scarves
+- [[New S.A Art Residency]] (Artist/Activists)
+	- Encrypted Chatroom "Virtuology Theory RPG" (intake)
+	- Roam DB [[XenoBloom]] Interfiction (Digital Garden)(middleface)
+	- Publish a POD scarf + 7 Dragons Diagram Scarf (output)
+	- Audience gets this and we split - output through other theorists / academic artists ... and Performers
+- [[NewSA.US]] Counter + Planetary Party Jamfest of musical performers curated by AI via Tik Tok (Artist/Travellers/Performers)
+- - Steadily collaging physical facts repeatedly hammering home that we are on a spinning rock in a galaxy moving 600 km/s through the universe - made of the same quantum stuff.
+- - Grow consciousness of [[compossibility]] of planetary life
+- - make interesting conjunctions between performers
+- - show performers how to create e-mail lists + Patreons + traffic San Pedro
+-
+-
