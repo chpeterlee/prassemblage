@@ -1,0 +1,10 @@
+- An artwork first.
+- An officially recognized peoples. Based on simulations by Yale.
+- Self aware of a future planetary subjectivity, in which we are creating the history now.
+- Self-aware of the construction of peoples, extend it to all things, including ideas themselves which can be represented by Ideavatars. Includes [[Knowkavkashi]] and [[Least Stupid Gang]] and [[Homo Cladogenetic Neganthropus]].
+- Aware of the Earth’s probabilistic [[net negentropic]] dynamics, which are embedded into its gravitational system.
+- Treats society as LARP, in which people can define both people and LARP’s and mini-games thereof. Utilizes the [[Indefinite Singularity H.U.D. (Heads Up Display)]].
+- Art is techne
+- Try to abide by the most [[inclusively scalable]] or [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Bestideas.lol]] or [[Least Stupid Movie - Different is More]]. Also some of its members are in the [[Least Stupid Gang]]
+- Overall, Evolutionary Biomechanical Variance is positive when adapted to produce more antifragile systems. And [[neganthropy]] aligns/produces antifragile or [[net negentropic]] systems over time.
+- ——-
