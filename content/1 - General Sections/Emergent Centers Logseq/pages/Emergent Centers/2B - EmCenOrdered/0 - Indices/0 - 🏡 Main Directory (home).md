@@ -1,0 +1,50 @@
+- 🏡 The Main Directory Home Block
+- [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+	- 1. [[Project Networks]]
+		- [[Ethical Futures Institute (ethicalfutures.site)]] (Ethical Futures Forecasting)
+		- [[Critical Play Projects (projects.criticalplay.work)]] (Organizing Notes)
+			- [IntercityPlanetary Community Map](htttp://intercityplanetary.space)
+			- [IntercityPlanetary Calendar](http://intercityplanetary.com)
+		- [[Pure Game (puregame.site)]] (Philosophical Game)
+			- XR Version
+		- [[CHASTE (chaste.site)]] (Open Source Interpretive Matrix)
+		- [[Critical Play Archive (archive.criticalplay.work)]]
+		- #[[Game P]] (Speculative Reality Game)
+			- {{embed  ((((7333730f-b383-45cd-9a3e-0a5813c4be52))))}}
+		- [Proxypresident.site](https://roamresearch.com/#/app/IntercityPlanetary/page/XjXDUcB7Q) (proxypresident.site) (A Quantum-aware Puppet running for and advising any President through a Human Proxy)
+		- [[Open Source Equality (opensourceequality.site)]] (Templates for Organizing)
+	- 2. [[Web 3 Tools]] **for Web 3 Activism**
+	- 3. [IntercityPlanetary.site](https://roamresearch.com/#/app/criticalplay_dot_site/page/qvsjv0a3h) **New Web 3 Culture**
+- 🏡 The Main Directory Home Block
+- [[Click on the bullet to the left or the small number to the right to see what's inside!]]
+	- 1. [[Project Networks]]
+		- [[Ethical Futures Institute (ethicalfutures.site)]] (Ethical Futures Forecasting)
+		- [[Critical Play Projects (projects.criticalplay.work)]] (Organizing Notes)
+			- [IntercityPlanetary Community Map](htttp://intercityplanetary.space)
+			- [IntercityPlanetary Calendar](http://intercityplanetary.com)
+		- [[Pure Game (puregame.site)]] (Philosophical Game)
+			- XR Version
+		- [[CHASTE (chaste.site)]] (Open Source Interpretive Matrix)
+		- [[Critical Play Archive (archive.criticalplay.work)]]
+		- #[[Game P]] (Speculative Reality Game)
+			- #[[Game P]] block
+				- 1. [[Pure Game (puregame.site)]] (talk about it as we speak - orbiting the earth at 30 km/s)
+				- 2. Betboi Game (loose parameters - how do we construct a fantasy betting game?)
+				- 3. #AntifragileGame (design fiction + mckenzie wark rules + transclusion + quines + invagination)
+					- #DesignFiction
+						- https://people.well.com/conf/inkwell.vue/topics/510/State-of-the-World-2021-page01.html
+						- http://tbdcatalog.com/
+						- https://buttondown.email/designfiction/archive/the-algorithms-bird-box-moment/
+						- http://nearfuturelaboratory.com/
+					- “McKenzie WARK / WRITING METAGAMES
+						- https://publicseminar.org/2013/11/how-to-beat-writers-block/
+						- Make up your own rules! Combine rules from one or more game, in combination or sequence. Invent new ones. Play off the affordances of your environment or devices. But remember: process is all; intention is nothing; and product just is what it is."
+					- Speculative Realism :
+						- [Speculative Reality Games](https://roamresearch.com/#/app/IntercityPlanetary/page/PEQEHYv5z)
+						- {{pdf  https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FEthical_Futures_Institute%2FUaOw_7sRdC.pdf?alt=media&token=2436e568-a418-4426-ae1f-ca8aa019a7eb}}
+					- Quines : https://en.wikipedia.org/wiki/Quine_(computing)
+					- Invagination : https://www.youtube.com/watch?v=dXpAbezdOho
+		- [Proxypresident.site](https://roamresearch.com/#/app/IntercityPlanetary/page/XjXDUcB7Q) (proxypresident.site) (A Quantum-aware Puppet running for and advising any President through a Human Proxy)
+		- [[Open Source Equality (opensourceequality.site)]] (Templates for Organizing)
+	- 2. [[Web 3 Tools]] **for Web 3 Activism**
+	- 3. [IntercityPlanetary.site](https://roamresearch.com/#/app/criticalplay_dot_site/page/qvsjv0a3h) **New Web 3 Culture**
