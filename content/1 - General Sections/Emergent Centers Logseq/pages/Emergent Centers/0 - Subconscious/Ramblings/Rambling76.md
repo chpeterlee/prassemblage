@@ -1,0 +1,39 @@
+- ----- 1. Conceptualization:
+- The Superpositional State Space [[persistent superpositional state]] exhibition system utilizes humans collaborating with AI parameterized on the latest versions of [[Open Source Universal Basic Intelligence Communities]] [[SRP]] protocol valued against the [[INF]]'s [[Accurate Market]] matrice to [[inference]] across spaces, cultures and datasets. State Space is built on concepts founding the [[S.A.G.E. System]] utilized by a synthesis of governmental organizations to forecast particular [[inference]]s. 
+  Accuracy of [[inference]]s can be inferred against the physical rates of change of the [[:#[[Gen N (Generation Negentropy)]][[Intercity Planetary Almanac]]]] by any and all in accordance to the [[Statistical Review Protocol]] designed by the [[Open Source Universal Basic Intelligence Communities]] of the [[[[inference]] Web 3+]]. [[inference]]s can be produced via human or non-human agents - as practiced by [[Gen N (Generation Negentropy)]] who's core [[inference]]s are summarized in [[Inferentialism]].
+- ----- 2. Actualization:
+- Works are installed via [[Inferential Reality]] [[Web 3+]] technologies and inferential partners:
+	- Rijksakademie, Amsterdam, Netherlands
+	- Istanbul, Turkey
+	- Bogota, Colombia
+	- Goldsmiths, London
+	- Phase Space, NYC, NY.
+	- Spasiba, Berlin, Germany
+	- Provisions Library of George Mason University, Washington, D.C.
+	- Mason Exhibitions, George Mason University.
+	- 9.5 St., Hamiltonian Gallery, Washington, D.C.
+	- LA, California
+	- Technical detailing of [[Inferential Reality]]:
+		- {{embed  ((((760ed578-d054-4253-8815-1f008b25d2a7))))}}
+- ----- 3. Variation & Synthesis:
+- 3. There are various distributed variations built on the core [[persistent superpositional state]] which evolve in inferential relation to each other:
+	- State Space Cinema
+		- [[World War Stupidity]]
+		- [[Birth of an Invagination: Until We Are Worth More Than Gold]]
+	- State Space Bi-linked Variants
+		- [[Amasian Renaissance Tales]]
+		- [[The Amasian Dialogues]]
+		- "There and these", ongoing, Portland, Oregon.
+	- State Space Open Directory
+		- Stable Arts
+			- https://www.instagram.com/p/CbdO5F1ufl5/
+			- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2F[[Neganthropocene]]Summit%2Frya0yrwJQm.png?alt=media&token=e6ae6735-92b9-457a-b82a-ee52e90a99d9)
+	- State Space Arbitration Court
+	- State Space Greylist
+		- [[The Amasian Post]]
+- ----- 4. Review & Distribution:
+- 4. State Space connects the inferential variants through [[Inferentialism]] and distributes via [[7. Inferential Press Net & [[inference]] Web]]. It has an explicit commitment to [[Antifragile Peace]], which is more accurately expressed as the inferential production of [[net negentropy]].
+	- {{embed  ((((63a6c977-24c1-434a-ac18-742925ae9731))))}}
+- ----- # 5. Metrics & Arbitration:
+- 5. State Space is currently adhering to the committments and metrics detailed in the | Intercity Planetary [[inference]]stitution, inferentially error-checkable against the [[:#[[Intercity Planetary Almanac]]]].
+- {{embed  ((((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))))}}
