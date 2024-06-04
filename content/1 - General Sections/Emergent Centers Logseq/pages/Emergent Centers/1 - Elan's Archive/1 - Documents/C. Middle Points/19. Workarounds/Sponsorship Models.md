@@ -1,0 +1,11 @@
+- Universities throw in $200 monthly, or something as such
+- Schools and etc. also throw in as part of their programs
+- Libraries also
+	- Students help distribute and communicate
+	- Small businesses put out their product
+	- Non-profits sponsor with connects and shares
+
+---
+- Social Media flips
+- Blog Posts
+- 
