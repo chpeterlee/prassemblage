@@ -1,0 +1,2 @@
+- [[accurate]] fiction is a 5th generation art praxis, following [[Theory Fiction]], which [[inference]]s [[accurate]] measurements into fictional frameworks of varying traditions, media, and degrees of complexity. This inevitably produces [[Fictional Accuracies]], or novel combinations of [[accurate]] measurements which can produce actualizable technical diagrams.
+- A fictional genre premised on the core criteria of [[accuracy]].
