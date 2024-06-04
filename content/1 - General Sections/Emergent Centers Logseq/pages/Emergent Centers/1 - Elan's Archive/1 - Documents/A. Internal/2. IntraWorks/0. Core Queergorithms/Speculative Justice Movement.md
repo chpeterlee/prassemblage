@@ -1,0 +1,1 @@
+The Speculative Justice Movement defines the terrain of justice in the realm and technologies of speculation - also referred to as [[Public Speculative Space]].
