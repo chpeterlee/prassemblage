@@ -1,0 +1,15 @@
+- ---
+- Postworkmarket.art trafficks 3 main commodities:
+	- 1. [[Inclusively Scaleable]] Art and [[Inclusively Scaleable]] units.
+	- 2. [[Greylist]]ings of harmful actions, organizations and ideologies.
+	- 3. [[Statistical Review]] services and protocols.
+- Inclusively scalable art
+- How to determine if an artwork is inclusively scalable:
+	- 1. Form Flexibility (not form reification)
+	- 2. Accurate Criticality of Content (is it actually worth thinking about or is it just another obvious sentiment?)
+	- 3. Cultural Complexification and Energy-Aware Mechanism (does it playfully add to the rich history of the planet or is this another stupid ill thought and unsustainable nihilism or transcendentalism?)
+- ---
+- Notes
+	- Diagram This Process
+	- Physical / Superpositional Painting
+	- Signature / The Antimony
