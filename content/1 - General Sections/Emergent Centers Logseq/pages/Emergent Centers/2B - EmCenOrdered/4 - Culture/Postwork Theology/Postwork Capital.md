@@ -1,0 +1,1 @@
+- [[Postwork Capital]] is a [[Web 3+]] based distributed research and investment group utilizing the Holochain platform. It [[inference]]s and variates on many processes and ecologies of the [[Open Source Universal Basic Intelligence Communities]].
