@@ -1,0 +1,1 @@
+- Invagination (or [[bifurcation]]): the primary mechanism of evolution in which a small number of individuals assemblage a new inclusively scalable behavior or tool for the long-term probabilistic benefit of the planet.
