@@ -1,0 +1,3 @@
+- Arbitrationist art statistically benefits from visualization and propagation:
+	- The majority of agents cannot calculate metaphysequilibrium beyond line of sight.
+	- Hence it does a service.
