@@ -1,0 +1,169 @@
+- **Tech**
+- --------------------
+- 0. #NoCodeTech
+	- {{embed  ((((137008bd-34f8-4435-ab10-38ce3d387e2d))))}}
+- 1. Web 3 Funding
+	- https://wtfisqf.com/
+	- https://blog.snowdrift.coop/2021-high-priority-free-software-project-list/
+- 2. Meshnets
+	- http://100kgarages.com/
+	- https://sourcecred.io/
+	- New S.A. Web 3 Co-op
+		- Youtube (4,000 hours) / Twitch (30) / smedia automation for artist/biz
+		  1. Google Form
+		  2. G Sheet
+		  3. Bot co-op (chromium?)
+		  4. Follow each other rants (shoutouts)
+		  5. Hashtag bets
+			- ---- culture issue ----
+			  ---- unique and good ---- 
+			  ---- certification ----
+			  ---- cultural game ----
+- 3. Open Source
+	- Linux Group https://etherpad.seattlematrix.org/p/wsealug_20210116
+	- Degoogle smartphone https://e.foundation/
+- 4. AI
+	- Aggregated gpt3 https://simpleaswater.com/gpt-3/
+	- No code ML https://towardsdatascience.com/top-8-no-code-machine-learning-platforms-you-should-use-in-2020-1d1801300dd0
+- 5. Cheap Domains
+	- Namecheap
+		- .site , .club , .surf , .work
+- ---------------------
+- **Media below**
+- 1. Planetary Studies
+	- https://podcasts.apple.com/us/podcast/ted-talks-daily/id160904630?i=1000505121095
+	- https://www.youtube.com/watch?v=uD4izuDMUQA
+	- Amasia
+		- https://www.youtube.com/watch?v=5ey_VDCQ_sI
+		- https://www.youtube.com/watch?v=CJdT6QcSbQ0
+		- https://www.youtube.com/watch?v=uD4izuDMUQA&t=1343s
+- 2. Convert to web 3 (Roam and Notion):
+	- Anything to Roam
+		- god this is nuts - heres the pipeline for Anything > Roam:
+		  1. Export [x] to html
+		  2. Append [x] and slice it into chunks using an html joining/splitting service.
+		  3. Import it into Notion.
+		  4. Export to .md
+		  5. Upload to Roam
+		- This will be able to intake anything and preserve most of the structure
+		- Notion is flexible that it can pretty much output to anything - so it's pretty much a universal file converter
+- 3. #DesignFiction
+	- {{embed  ((#DesignFiction ))}}
+- 4. Twitch usage (for talkshows)
+	- https://twitch.tv/frogpants
+	- https://www.twitch.tv/kindafunnygames
+	- Twitch usages:
+		- 1. Passive lifing + tinkering + random convos (Patreon + Goglympics)
+		  2. Talks & meetings & merch / crosshosting (twitch collective) + sign up sheet
+		  3. Shows (freestyle curations & lectures & q&a) - (concentrated content + distribution strategy)
+		- so : Free unlimited no log in video calls for 100 ppl
+			- https://meet.jit.si/
+			- use https://meet.jit.si/intercityplanetary
+			- use https://meet.jit.si/criticalplay
+			- 1. Jitsi screen share
+			  2. Streamlabs (desktop capture and video)
+			  3. Twitch / YT / FB / IG Live
+			- [![](https://media.discordapp.net/attachments/798933903599206440/801153482358521856/unknown.png?width=550&height=170)]
+			- you should look into the Twitch Clips interactions, because the community could produce a ton of streams on the main acct, host the shows out to their twitch channels we make for them, then everyone and anyone could make these little Clips of parts they liked or thought were useful or funny, and those clips get stored on twitch but also could be linked out to IG wherever.
+	- How to Host
+		- fyi to host someone manually, you go to your own chat box (found under stream manager in your twitch dashboard) and type /host [username]
+		- the stream manager is here, but replace gameseum with your own channel name
+		- https://dashboard.twitch.tv/u/gameseum/stream-manager
+		- so that's dashboard.twitch.tv/u/<yourChannelName>/stream-manager
+		- i'm gonna hop on twitch and try to learn some neos through the tutorial world
+		- hey @scrap thx for the follow!
+- 5. Mixed Reality
+	- Dungeons and Dragons VR in Neos VR https://www.youtube.com/watch?v=gB37OOKaqso
+	- UNAI https://www.producthunt.com/posts/unai
+	- Neos VR https://wiki.neos.com/Main_Page
+- **Tech**
+- --------------------
+- 0. #NoCodeTech
+	- #NoCodeTech
+		- https://www.nocode.tech/
+		- No Code Crypto
+			- https://abridged.io/
+			- https://blog.sendwyre.com/no-code-is-the-next-big-step-for-crypto-and-its-here-261c1e8cad67
+			- https://www.bitpanda.com/academy/en/lessons/what-does-pre-mined-mean/
+		- Apps
+			- glyde
+			- gpt 3 can generate an app
+		- 6. Zapier / Ifft / Imacros
+		- 7. Nodered / max msp
+		- 8. Miro / Roam / Notion / Discord
+		- 9. Automated Nonlinear simulator from corona
+		- No code ai
+- 1. Web 3 Funding
+	- https://wtfisqf.com/
+	- https://blog.snowdrift.coop/2021-high-priority-free-software-project-list/
+- 2. Meshnets
+	- http://100kgarages.com/
+	- https://sourcecred.io/
+	- New S.A. Web 3 Co-op
+		- Youtube (4,000 hours) / Twitch (30) / smedia automation for artist/biz
+- 1. Google Form
+- 2. G Sheet
+- 3. Bot co-op (chromium?)
+- 4. Follow each other rants (shoutouts)
+- 5. Hashtag bets
+	- ---- culture issue ----
+- --- unique and good ----
+- --- certification ----
+- --- cultural game ----
+- 3. Open Source
+	- Linux Group https://etherpad.seattlematrix.org/p/wsealug_20210116
+	- Degoogle smartphone https://e.foundation/
+- 4. AI
+	- Aggregated gpt3 https://simpleaswater.com/gpt-3/
+	- No code ML https://towardsdatascience.com/top-8-no-code-machine-learning-platforms-you-should-use-in-2020-1d1801300dd0
+- 5. Cheap Domains
+	- Namecheap
+		- .site , .club , .surf , .work
+- ---------------------
+- **Media below**
+- 1. Planetary Studies
+	- https://podcasts.apple.com/us/podcast/ted-talks-daily/id160904630?i=1000505121095
+	- https://www.youtube.com/watch?v=uD4izuDMUQA
+	- Amasia
+		- https://www.youtube.com/watch?v=5ey_VDCQ_sI
+		- https://www.youtube.com/watch?v=CJdT6QcSbQ0
+		- https://www.youtube.com/watch?v=uD4izuDMUQA&t=1343s
+- 2. Convert to web 3 (Roam and Notion):
+	- Anything to Roam
+		- god this is nuts - heres the pipeline for Anything > Roam:
+- 1. Export [x] to html
+- 2. Append [x] and slice it into chunks using an html joining/splitting service.
+- 3. Import it into Notion.
+- 4. Export to .md
+- 5. Upload to Roam
+	- This will be able to intake anything and preserve most of the structure
+	- Notion is flexible that it can pretty much output to anything - so it's pretty much a universal file converter
+- 3. #DesignFiction
+	- {{embed  ((#DesignFiction ))}}
+- 4. Twitch usage (for talkshows)
+	- https://twitch.tv/frogpants
+	- https://www.twitch.tv/kindafunnygames
+	- Twitch usages:
+		- 1. Passive lifing + tinkering + random convos (Patreon + Goglympics)
+- 2. Talks & meetings & merch / crosshosting (twitch collective) + sign up sheet
+- 3. Shows (freestyle curations & lectures & q&a) - (concentrated content + distribution strategy)
+	- so : Free unlimited no log in video calls for 100 ppl
+		- https://meet.jit.si/
+		- use https://meet.jit.si/intercityplanetary
+		- use https://meet.jit.si/criticalplay
+		- 1. Jitsi screen share
+- 2. Streamlabs (desktop capture and video)
+- 3. Twitch / YT / FB / IG Live
+	- [![](https://media.discordapp.net/attachments/798933903599206440/801153482358521856/unknown.png?width=550&height=170)]
+	- you should look into the Twitch Clips interactions, because the community could produce a ton of streams on the main acct, host the shows out to their twitch channels we make for them, then everyone and anyone could make these little Clips of parts they liked or thought were useful or funny, and those clips get stored on twitch but also could be linked out to IG wherever.
+	- How to Host
+		- fyi to host someone manually, you go to your own chat box (found under stream manager in your twitch dashboard) and type /host [username]
+		- the stream manager is here, but replace gameseum with your own channel name
+		- https://dashboard.twitch.tv/u/gameseum/stream-manager
+		- so that's dashboard.twitch.tv/u/<yourChannelName>/stream-manager
+		- i'm gonna hop on twitch and try to learn some neos through the tutorial world
+		- hey @scrap thx for the follow!
+- 5. Mixed Reality
+	- Dungeons and Dragons VR in Neos VR https://www.youtube.com/watch?v=gB37OOKaqso
+	- UNAI https://www.producthunt.com/posts/unai
+	- Neos VR https://wiki.neos.com/Main_Page
