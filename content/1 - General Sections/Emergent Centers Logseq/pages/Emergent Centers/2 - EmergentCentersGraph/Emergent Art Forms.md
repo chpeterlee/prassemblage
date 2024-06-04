@@ -1,0 +1,19 @@
+- ---
+- 1. Definition
+- [[Hyperpainting]] and [[Hypersculpture]]
+- Movements: [[Neganthropic Modernism]] [[Amasian Futurism]] [[Neganthropomorphism]]
+- ---
+- # 2. Applications
+- ---
+- 3. Contexts
+	- {{embed  ((((56046f42-7d7b-4809-ba57-9ca083371e29))))}}
+- ---
+- 4. Multi-cast Distribution
+- {{embed  ((16d084a1-3a41-4546-917a-0be3b21a5334))}}
+- ---
+- 5. Statistically Reviewed Metrics & Markets
+- {{embed  ((305e57b6-f132-44ad-b526-c548323604ee))}}
+- ---
+- 6. Cultural Analogies
+- ---
+- 7. Emerging Complexifications
