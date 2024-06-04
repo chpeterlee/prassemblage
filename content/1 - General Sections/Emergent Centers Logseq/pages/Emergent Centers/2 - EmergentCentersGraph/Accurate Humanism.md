@@ -1,0 +1,1 @@
+- A variation of Humanism in which the chief concern is "accuracy", which can be constantly contested and adjusted by any entity.
