@@ -1,0 +1,4 @@
+- 5th Wave Feminism builds upon the 4 waves of feminism prior. It is primarily defined by 3 conceptual dimensions.
+- 1. Evolution as [[ecocyber-positive]] [[Assemblage]]s driven by [[attractor]]s. The [[Will-to-semiotechne]].
+- 2. Method: Invagination, [[bifurcation]] via [[imagination]] and [[speculative]] praxes which produce [[non-linear]] relations. [[Learn-In]]s.
+- 3. Metrics: A trajectory of antifragility or [[Inclusive Scalability]] or [[neganthropy]].
