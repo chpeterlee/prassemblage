@@ -1,0 +1,3 @@
+- [[Least Stupid Prize]] Club
+- Birth of an Invagination
+- Your multiple personalities, your friend or their multiple personalities, or Quantum AI or Ecological Systems.
