@@ -1,0 +1,14 @@
+- The [[Inference Web 3+]] is a decentralized Web 3+ network which focuses on [[accurate]] arbitration within the planetary economy. It is comprised of both human and non-human agents, abducting into the greatest net negentropic relations with respect to each agents' [[Bounded Rationality]] using an open source matrice of [[inference]]s constantly being updated towards more [[accurate]] [[net negentropy]], comprising [[Inferentialism]].
+  id:: e909506d-3077-4eca-9900-c9d031f57b57
+	- List of aggregating points:
+		- [[Planetary Research Assemblage]]
+		- [[Ethical Futures Institute]]
+		- [[Postwork Capital]]
+		- [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Assemblage Cultural Project]]
+		- [[Centre Amasia]]
+		- [[Neganthropomorphosis/pages/2B - EmCenOrdered/1 - Knowledge/Facts/Autodidactic Universe]]
+		- [[Inferential Reality]]]
+		- [[Open Source Universal Basic Intelligence Communities]]
+		- [[Inferentialism]]
+			- {{embed  ((((63a6c977-24c1-434a-ac18-742925ae9731))))}}
+			-
