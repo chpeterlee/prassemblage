@@ -1,0 +1,110 @@
+- ---
+- # 1. Introduction
+	- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] is based on philosopher [Bernard Steigler's](https://en.wikipedia.org/wiki/Bernard_Stiegler) concept of the [Neganthropocene](https://www.youtube.com/watch?v=ETHOqqKluC4)**  (link to youtube video below). 
+	  id:: 645f1da5-cc54-4353-8d93-c183dc2f947e
+	  
+	  This open concept explores how the concept of [[negentropy]], the universal tendency for all systems to co-evolve and complexify over time.
+		- {{video  https://www.youtube.com/watch?v=ETHOqqKluC4}}
+	- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] is designed to address the 3 main chokepoints of academic and technical discourses:
+		- 1. Solving the siloing of knowledge by utilizing distributed groups of polymaths.
+		- 2. Rapidly producing new syntheses through the atomization of knowledge into both physical and informational [[inferences]], which can be re-combinated through human-machine teams.
+		- 3. Solving the problem of mediating information to those outside the technical fields by utilizing [[Transmedia]] art.
+	- The [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/Neganthropocene Summit]] embraces a [[ecocyber-positive]] stance, encouraging humans to engage in [[inclusively scalable]] [[co-evolution]] with non-human entities.
+- ---
+- # 2. Principles
+	- There are 3 main paradigms operating at 3 different scales:
+		- 1. **Individual**: [[Grammatization]] and [[Exteriorization]] as primary processes of subjectivity intertwining with technological processes such as reading, writing and archiving.
+		- 2. **Social**: Love as a co-evolutionary and physio-informational force relating humans and non-humans, such as ecological entities and AI.
+		- 3. **Complex Systems:** the [[Neganthropocene]] as a way to reframe complex probablistic trajectories of large systems, both for humans and non-humans.
+- ---
+- 3. Application
+	- [[Sculpture]]
+	- [[Film]]
+	- [[Gamification]]
+- ---
+	- Notes
+		- (Technical Details)
+			- **The summit actualizes via various forms of planetary media** including [[Web 3+]] and [[Inferential Reality]] on various layers of the [[[[inference]] Web 3+]] error checked by the [[Intercity Planetary [[inference]]r Network]].
+				- This includes [[Web 3+]], [[photonic computational cameras]] and [[inference]] press. The summit adheres to the main inferences of [[Inferentialism]] which specific participants can [[inference]] differently.
+				- [[State Space Exhibitions & The Impossible Embassy]]
+				- The [[Neganthropocene Summit]] is [[inference]]d into the [[Amasian Symphony Orchestra]] and [[Amasian Biennale]] via [[Web 3+]] which produces [[persistent superpositional state]] symphonies.
+					- These symphonies [[inference]] various systems of the planet's ecological, social and intellectual networks through both human and non-human collaborations. In both direct and indirect manners, the [[Amasian Symphony Orchestra]] is always in inferential relation to the [[:#[[Intercity Planetary Almanac]]]], a matrice of inferences of various rates of change on the planet which change over time and are updated as best as possible.
+						- 3. Superpositional Network & the Intercity Planetary
+						- [[4. New S.A. Autodidactic Universe & Superpositional Persistent State System]]
+					- The concepts and tools are disseminated through a combination of participatory fiction, game and media art production. Participates engage in an Autodidactic Curriculum in various social networks with varying degrees of breadth and depth.
+						- [[11. Accurate Fiction & Paradigm Shift Art]]
+						- [[12. Captain Amasia & OSUBI-C]]
+						- Social networks:
+							- [Discord](http://discord.Neganthropocenesummit.com)
+							- [fb](https://www.facebook.com/groups/PRAssemblage)
+							- [Exhibitions](https://www.instagram.com/superpositional.gallery/)
+							- [Podcast](http://podcast.amasianpost.site)
+			- **There are a myriad of production and exchange systems** in varying degrees of formality, executing throughout the summit in multiple media and currencies, physical and electronic, digital and non-digital.
+				- [[5. INF & Until We Are Worth More Than Gold]]
+				- [[6. Notflix.art & Notcoin]]
+				- [[7. Inferential Press Net & [[inference]] Web]]
+				- We are distilling a simple short-hand [[: Conceptual Dictionary]] which should take less than 7 minutes to understand the core fundamentals.
+					- [[: Conceptual Dictionary]]
+					- [[9. 100 Years of Non-linear Future History & Geothermalpedia 6000]]
+					- [[10. Skin in the Game of Accurate Markets & The Errorless Review Inferential Protocol]]
+		- 3 Principles:
+			- A transmediating discourse of the [[Neganthropocene]] to contextualize:
+				- Art as techne, Individuals as transindividuators, Evolution as [[inclusively scalable]] [[cladogenesis]].
+				- For social, utilizes a modified ontology based on the Indefinite Singularity which parses things into:
+					- 1. Natural ecologies
+					- 2. Social ecologies
+					- 3. Intellectual Ecologies
+					- 4. Techne Ecologies
+					- 5. Neganthropic Ecologies
+				- Approaches all things as inferences which can be said to have varying degrees of accuracy under a statistical review.
+		- Working Notes
+			- “The Neganthropocene Summit”, focuses conversation on post-Anthropocene discourses, both speculative and practical.
+			- Bernard Stiegler constructed the term Neganthropocene, which fuses concept of negentropy, a universal law of both physical and informational systems co-evolving into more complexity over time, with an era in which humans and non-humans renegotiate relations and material conditions.
+			- The Neganthropocene Summit uses new knowledge multimedia systems to open the range of expressivity, imagination and intuition in conversations.
+			- Additionally, the Neganthropocene Summit recognizes and recombines past aesthetics, mythos and knowledges, articulating resonances between alchemy and quantum computing, Zoroastrianism and Gnosticism, Buddhism and statistics, animation and cave art, 3D printing and plaster casts.
+			- The Summit is also an open forum for synthesizing ideas from the "Speculative Turn" of the 2010's with a practical and accurate as possible navigation of the existing fragilities and capacities of today's eco-social, socio-economic and psycho-informational ecologies.
+			- The phrase "All Lives End, All Ends Meet in the Neganthropocene Summit, Where" references the recent planetary political cultural form of the hashtag "[adjective] Lives Matter", and a common aphorism derived from tailoring and dressmaking, of "making ends meet", which is a metaphor referencing strategies for meeting financial obligations.
+			- The text swerves the merged colloquialisms towards a theoretical and institutional context "Neganthropocene Summit" - a growing planetary physical and digital space for open discussion of both global and local issues, exchange and analysis of culture and tools, intellectual synthesis and speculative activism.
+			- The last word ", where" prevents the closure of the sentence into a statement, leaving it open as a fragment. In a linear visual context, this fragment would be perceived as an error and mistake; in the non-linear visual context of the circle, the fragment becomes an open-ended logical function, both clearly localizing its conceptual process while opening it beyond any particular physical locale.
+			- The [[Neganthropocene]] Summit is a [[persistent superpositional state]] system utilizing [[Web 3+]] split into two aims: one is to produce a [[persistent superpositional state]] public knowledge and inferential arbitration system centered around the idea of "Negentropy" - which is the proven statistical bias all systems on the planet have towards producing more complexity over time.
+				- The second aim is to induce an open exploration of what the concept of [[Negentropy]] implies for the human condition - much of which has been written about by [[Bernard Stiegler]] in his series of essays and lectures compiled under the title the [[Neganthropocene]].
+				- The summit utilizes various forms of planetary media, including [[Web 3+]], quantum computational cameras and [[inference]] press.
+				- The summit adheres to the main inferences of [[Inferentialism]] which specific participants can [[inference]] differently.
+				- The summit works with the [[Amasian Symphony Orchestra]].
+		- Older
+			- 2. Applied Contexts:
+			- Methodology
+				- DAT talks - Democracy, Art and Technology.
+				- Human-machine team [[Statistical Review]]
+				- Transmedia arbitration and storage.
+			- 3. Variation & Synthesis:
+			- ---
+			- 4. Review & Distribution:
+			- The [[Neganthropocene Summit]] utilizes the [[Stastical Review Protocol]] as detailed by the [[Open Source Universal Basic Intelligence Communities]] in relation to the [[Inferecenstitution]] and [[:#[[Intercity Planetary Almanac]]]].
+				- [[Superpositional Network]]
+					- {{embed  ((((edc97745-0ebc-4e1c-b545-a1dd0b7c454f))))}}
+			- ---
+			- ---
+			- 5. Arbitration & Metrics:
+			- [[5. INF & Until We Are Worth More Than Gold]]
+		-
+			- This is encapsulated in a foundational grey paper, [[Inferentialism]], being translated into an essay called [[Different is More]].
+				- Much of this has been written about by [[Bernard Stiegler]] in his series of essays and lectures compiled under the title the [[Neganthropocene]].
+				- [[Different is More]], a succinct synthesis of [[Complexity Science]] and [[Assemblage Theory]] by the [[Planetary Research Assemblage]].
+			- ** During this exploration, the Neganthropocene Summit generates a [[factlas]] of the [[Intercity Planetary]]- an intermapping of datasets, proofs, conceptual tools, cultural tools, community indexes and discussions, that provide a more accurate planetary perspective and history.
+				- This perspective provides the [[inference]]s for the [[: Intercity Planetary [[inference]]stitution]] aimed towards producing [[Antifragile Peace]].
+				- In more technical terms, it is a [[persistent superpositional state]] system utilizing [[Web 3+]] split into two aims: one is to produce a public knowledge and inferential arbitration system centered around the idea of [[negentropy]] - which is the probabilistic tendency of all systems of the universe producing more complexity over any arbitrary timescale.
+				- [[: Conceptual Dictionary]] & [[Bettor Art]].
+		- The [[Neganthropocene Summit]] utilizes 3 scaled paradigms inferred from the discourse of the [[Neganthropocene]] by [[Bernard Stiegler]]:
+			- **1. Accessibility, Accuracy, Global Commons**
+			- **2. Scaled Paradigms**
+				- 1. At the individual scale, art is approached primarily as the production of techne (or functions or behaviors) first. Hence, individuals are autodidactic transindividuators of techne, functions and behaviors foremost.
+					- As a result, evolution results from [[inclusively scalable]] [[cladogenesis]] - or numerically small groups prototype paradigm shifts that then produce more [[inclusively scalable]] systems than that of larger groups.
+				- 2. At the social scale, the summit deploys a modified and open-source ontology based on the concept of the Indefinite Singularity, by [[Felix Guattari]]. which parses social entities into:
+					- 1. Natural ecologies
+					- 2. Social ecologies
+					- 3. Intellectual Ecologies
+					- 4. Techne Ecologies
+					- 5. Neganthropic Ecologies
+				- 3. At the regional scale and above, the summit views all physical and informational systems as composed of inferences which can be said to have higher or lower likelihoods of occuring, with varying degrees of accuracy. Inferences can be verified via [[Statistical Review]].
+			- **3. The Indefinite Singularity Schema, [[inclusive scalability]] Metric & [[Postwork Market]] **
