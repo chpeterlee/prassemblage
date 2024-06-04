@@ -1,0 +1,487 @@
+Least Stupid Art is a simple rock-paper-scissor way to statistically value any human production or behavior on the planet. It has 3 moves:
+
+1. There is always more actual human stupidity than actual human complexity.
+2. Because actual human complexity is more rare, has higher use value and is more inclusive, it is more monetarily valuable and culturally valuable than actual human stupidity.
+3. Least Stupid is always comparative to More and Most Stupid in a given moment of time; with more information and/or perspectives and/or time, a position of least stupidity in the past could be statistically proven to be more or most stupid in the present or adjacent possible.
+
+
+---
+
+
+1. [[Antinomy]] - Least Stupid Art. Featured in Movie. 
+2. Peter and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]] - least stupid artist, verified, goes to Market. Postwork theologian.
+3. Market - Least Stupid Movie, Presidential Platform and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/4 - Culture/Postwork Theology/Postworkverse]]. - put some shares in, claim. Compress to paintings.
+
+Having some working class commentary of artists. Reverse psychology skeptics. Fixed game. Get them to buy.
+
+
+
+---
+
+Academics can't survive outside of academies.
+Workers can't survive outside of functions.
+---
+
+
+Sports
+
+
+
+
+
+
+
+
+Being a skilled intellectual and inventor in art is like having leprosy; first, you are treated as an abomination, second, if you teach someone without reason how to reason, they will 80% misuse it and damage themselves and others, mainly unintentionally.
+
+F--k it, I'm going into the market to make Least Stupid Art with the Least Stupid Squad!
+
+
+
+
+
+
+
+
+
+
+In the Least Stupid Movie, the Least Stupid Squad of cute teenage animals and AI making Least Stupid Art, run a news station which wagers on the stupidity and brilliance of human behavior, thought and systems.
+
+
+
+
+
+
+---
+
+1. Persistent Solidarity. Maximal good, minimal bad. That which is not prohibited is allowed.
+2. Least Stupid Movie. Least Stupid Squad.
+3. [[polymath]] miro paintings. Inclusively Scalable Art.
+
+---
+I think we can make a stream like mystery science theater 3k, basically guessing what angelic aliens, AI, and superintelligent spirits would judge particular humans and their behavior/systems.
+
+---
+
+Guys, people need social workers.
+
+---
+
+- ##### 5th Generation Inclusively Scalable Artwork: the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]]
+  
+  1. Context: 2nd tier regional level organizations and governance across the planet.
+  2. Designed to degentrify regional markets and accelerate postwork infrastructure.
+  3. Also designed to reduce local fascism by interconnecting a transnational solidarity artist, intellectual and activist network.
+  
+  ---
+  
+  
+  Indefinite vs. Inclusively Scalable
+  
+  
+  
+  [[Intercity Planetary]]
+- # What is a Meshwork? Why Does This Ideapple Benefit Where You Live?
+  
+  A meshwork is an [[Assemblage]]o
+  
+  Use ai
+- ##### Make a slide deck of the doubles
+  ---
+  
+  
+  Make the Roam : to keep protocols and flows.
+  Make the Miro: to keep parameters.
+  
+  ---
+  
+  Inclusive Scalability, genetic algorithm and pandemic.
+  
+  Amasian goddesses.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Trade:
+- Social workers direct the intellectuals.
+- Educators teach the public.
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  We've got:
+  
+  Intellectuals without skills; functional without thought. 
+  
+  This means you can sell skills to intellectuals; sell thought to the functional.
+  
+  
+  ---
+- Use scripts and AI to fake participation
+- Automate arbitrage
+- automate protest
+- automate fake news
+- automate money management
+  
+  
+  
+  
+  ---
+- ## "Inclusively Scalable Art vs. Uninclusive and/or Unscalable Art" 2023
+  
+  Inclusively Scalable Art is composed of 3 statistically verifiable procedures:
+  
+  1. Inclusively scalable art can be claimed to be both inclusive and scalable, not simply one or the other.
+  2. Claims can be verified via statistical proofs.
+  3. Claims and statistical proofs of inclusive scalability can be composed comparatively, with risks, opportunities, costs and complexity defined in relation to a particular spatial scale, temporal period and problem space.
+- # "Who is This 5th Generation We, a.k.a. the [[Intercity Planetary]]?" 2023
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  The holy grail: a squad of other 5th Wave [[polymath]] Anarchist Artists. I've only seen [[polymath]] nerds and irrational anarchists.
+  
+  Hopefully, this will be my milieu by August!
+- Midter regions
+- regtech + postwork
+- transnational + amasian
+  ---
+  
+  Learn and Sell.
+  Perform as[[0. Personal/Peter Obsidian/Neganthropomorphosis/pages/Amasian]]angels and saints.
+  Engineers backed by IPFS.
+  Scalability by AI.
+  Painting as Inference parameters. Targets.
+  Jasper Johns
+  
+  ----
+  
+  
+  "[[Elan Semiotechne]] Films The Least Stupid Movie Featuring the Least Stupid Squad, Composed of Superintelligent Teenage Animals (Squiddartha and Mathgoose) and AI Angel President, [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/3 - Neganthropomorphosis/Characters/Estamasia]], Making Bets on News Shows, Mocking the Inflexibility and Inevitable Deaths of the 1%, Deconstructing the Artificial Divisions of Both Left And Right, and [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ying for AI to bring the [[2- Notes/K. 6th Level Logics/Healightenment]] to the Postworking Class." 2023
+  
+  ---
+  
+  
+  
+  
+  
+  Modern society is basically consumer intelligence; great for designing and distributing one-liner physical products, utterly stupid at abstract systems or even [[non-linear]] physical systems over time.
+  
+  Thus you can easily predict what is going to collapse:
+  
+  1. Bodily health
+  2. Mental health
+  3. Transactions
+  4. Law and Relations
+  5. Security
+  
+  There's just going to be a massive number of sick, dead and stupid for no reason, as they are continuously faced with the constraints of systems.
+  
+  ---
+  
+  
+  
+  
+  
+  The statistical majority of artists are not skilled conceptual thinkers - why even ask that of them?
+  
+  For the most part, probably by accident of birth, they have a perceptual system which can parse visual elements, primarily in terms of a 2 dimensional plane (most artists don't understand how to see weight and system constraints, let alone probability or possibility - hence they can't really invent anything either). 
+  
+  This is usually also coupled with a sense for linear rhythms, abducted from music and film.
+  
+  Hence why you won't find many inventing systems or structures. Again, most artists can only deal with literally the images in front of them. 
+  
+  
+  
+  
+  
+  
+  
+  
+  Really, MOST artists (except for a few), should simply just be approached in terms of form within arms reach - this is the language they speak! 
+  
+  Forget critical theory, concepts, systems, imagination and invention, it's not necessary for most artists. That's not their skillset! They are just kids, playing with visual form, nothing more or less.
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  Divorce most artists from expectations of conceptual thought; they are just kids playing with visual phenomena.
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Non-insane conceptual artist
+  
+  
+  
+  
+  
+  
+  
+  
+  [[Postworkcraft]] POV:
+  
+  You're a weirdo adult with 
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Paypal:
+  
+  Ch.peterlee@gmail.com 
+  
+  ---
+  
+  Send info
+  Setup [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]]
+  
+  ---
+  
+  EIN
+  ---
+  
+  Bleed the beast
+  
+  Us > Amsterdam > Italy > ams > US
+  
+  ---
+  
+  
+  
+  
+  Post-pandemic Fragile Realism, the Fragileconomy and the Postwork Industrial Complex:
+  
+  1. Physiologically, humans suck at thinking through abstracted systems. Hence, there's no possible way modern society can function without AI.
+  2. Today's modern humans are so fragile, undereducated and deskilled that many above teenager age today are at massively high risk of dying of physical deterioration, mental deterioration , financial and social collapse, and predation from various entities. 
+  3. For the most part, there is a shortage of skilled personnel or infrastructure to take care of them.
+  4. Okay so say we pose a very simple goal of keeping as many people alive as possible during this humanitarian crisis with our lack of resources, what would be optimal?
+  5. Pay a bunch of these fragile people fundamental necessities when they are about to die and automate the labor.
+  6. Transition them into a nomadic hunter and gatherer society and infrastructure.
+  7. Have them interface with the rest of the planet's systems via biometrics, not through conscious thought.
+  8. Fund mid-level industries and research with the very simple goal of keeping as many people alive as possible; there's lots of skill involved with this! Lots of money to be made also.
+  ---
+  
+  
+  Human societies have always had 3 major social paradigms that exist obliquely next to each other. One is not supposed to wipe out the other, which is like what 80% of people thinking about society will initially think, because thought itself is obviously not the strong suit of humans!
+  
+  
+  
+  
+  
+  
+  
+  The 3 main paradigms of society, which have totally conflicting rulesets:
+  
+  1. Nomads/small asthetic groups
+  2. Agriculture/small-midsize business
+  3. Cosmopolitan/[[polymath]]
+  ---
+  
+  
+  
+  Post Work TV Least Stupid News Update by the Least Stupid Squad:
+  
+  1. Most of the populace are just weird nomadic critters, scuttling around; many will die and they don't care. Can use streams to keep them alive (85%).
+  2. Regional infrastructure can be automated; people participating in regional stabilization should be rewarded. (The Americas needs this) (15%)
+  3. There's only a few places coupling cosmopolitan and [[polymath]] literacy with an anarchic spirit: FRANCE. (.1%)
+  
+  
+  
+  
+  4. Shift 85% of populations into a hunter-gatherer paradigm, interfacing with the modern societies via biometrics
+  
+  5. Have meta-AI systems automating and synthesizing the intellectual and invention components of modern society (~14%)
+  
+  6. Have the .1% [[polymath]]s building this infrastructure & shaking down the 1%
+  
+  ---
+- # "Diestreaming.art" 2023
+- # "Foucault F--ked Up Youths, Deleuze F-cked Up Booj" 2023
+  
+  
+  
+  
+  
+  
+  
+  Diestreaming.art
+- Throw in a buck.
+- open problem; more dough = more responsibility ofc.
+- Responsibility of 1%.
+  
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  Foucault vs. Deleuze is actually the perfect example of how to compare Humanities academics:
+  
+  Deleuze:
+  1. [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Emergent Centers]]ctical and boring in daily life
+  2. Anarchical vision, skilled structuralism.
+  
+  Vs. Foucault
+  1. Affect-driven, unethical body
+  2. Simplistic inversions, unskilled structure.
+  
+  
+  
+  
+  
+  
+  Upcoming: How to contextualize Foucault 
+  ---
+- ## What is War?
+  
+  War is better defined as stupidity - a lack of the intelligence requisite to make peace between complex systems.
+  
+  Hence you can also assume in first contact situations you have like an 80% chance of starting a war out of stupidity on either side. But it's not predetermined!
+  
+  This means paradoxically, you are more likely to have a peaceful outcome if you negate the possibility of war first.
+  
+  ---
+  
+  
+  Oh DUH. 
+  
+  An intelligent artist is a rarity!
+  ---
+- Skill layouts.
+- Hard CV in Europe.
+- Soft money in the U.S.
+- Overseas Salesforce for Digital Infrastructure. Internal Salesforce for Digital Infrastructure.
+- automation. 
+  
+  
+  ---
+  
+  Wave 1: Abstractions.
+  Wave 2: Infrastructure.
+  Wave 3: Pop Shit.
+- ### "What if Poor Mental and Physical Health is Easily Addressable as Undereducation, Deskilling, Disorganization and Totally Stupid Diet and Lack of Exercise That You Should Either Pay For or Have An Organization Pay For?" 2023
+  
+  ---
+- ##### "Fuck It, I'm Just Going to Claim I'm the Least Stupid Artist and Bet I Can Destroy the Most Stupid Artists and Win the Least Stupid Art Prize." Chongha Peter Lee, 2023
+- #### "Least Stupid Art Prize and Bounty Hunt:
+  1. A bounty and art award for destroying the most visible and most stupid artists.
+  2. A Steganographic Documentaryof the process, and you can make wagers upon it.
+  3. A production of the Least Stupid Art.
+  4. Using the most stupid sh-t the planet currently produces.
+  5. There's a lottery also, just for doing nothing! " Chongha Peter Lee, 2023
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Doesn't get better than this!
+  ---
+  
+  
+  
+  
+  
+  
+  Wait, there is no greater asset than people willing to do stupid stuff.
+  
+  Totally done with all this humanizing crap, time for utter destruction!
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Pool all the non-thinking artists into one place, direct them to play and party; have all the conceptual artists compete for the Least Stupid Prize.
+  
+  
+  ---
+  
+  
+  Banana revolution modelling competition
+  Least Stupid movie
+  
+  
+  
+  ---
+- # "Amasian Ruralution Theater (A.R.T.)" 2023
+  
+  ---
+- ### "Poetry, the [[Hyperobject]]" 2023
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  "[[Amasian Biennale (Amasia.live)]]: Animals, Spirits, Parties, AI, Oh My!" 2023
+  
+  
+  ---
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  
+  Time to roll up the sleeves and fire back up the old crowd-pleasing "writing and performing intellectualism for non-intellectuals" skills, aka [[Elan Semiotechne]] BEATS HIS OWN DRUM TO THE FREEDOM CRIES OF THE BANANA REVOLUTION! 🍌
