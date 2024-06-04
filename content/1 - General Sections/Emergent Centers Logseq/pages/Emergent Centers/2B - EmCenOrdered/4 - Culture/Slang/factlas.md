@@ -1,0 +1,1 @@
+- A [[factlas]] is a form of representing facts utilizing knowledge graph systems.
