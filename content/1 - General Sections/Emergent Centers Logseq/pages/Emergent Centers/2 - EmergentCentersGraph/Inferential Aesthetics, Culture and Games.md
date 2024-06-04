@@ -1,0 +1,9 @@
+- {{embed  ((((7388af51-d133-49ee-bec3-27b83eba5e60))))}}
+- [[Inferential Aesthetics, Culture and Games]] refers to the [[Open Source Universal Basic Intelligence Communities]] absorption of greyweb praxes to gamify the participatary production and exchange of new [[inference]]s based on [[Inferentialism]].
+- Inferential Documentary, Sculpture, Performance and Martial Arts.
+- ((dc99c5fa-5952-4a2d-8fbb-2daac746921a))
+- Gen N and Captain Amasia.
+- ((0ccd0695-0464-418d-9dca-77529caea3d3))
+- ((efd17d41-2c40-4bc6-992f-08f2fdec7c1e))
+- ((2b36face-fbdc-4abb-8ee7-c7f4201952e0))
+- {{embed  ((((03dcfa7e-b4b3-4948-bca7-73497ebc1cef))))}}
