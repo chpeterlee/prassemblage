@@ -1,0 +1,6 @@
+- Robo surgery
+- Clinical drugs
+- insurance
+- Cleveland clinic
+- Get Mike to talk with mom over time.
+- inhibitor, light radiation, light chemo cycle = pause, then shrink, with minimum level.
