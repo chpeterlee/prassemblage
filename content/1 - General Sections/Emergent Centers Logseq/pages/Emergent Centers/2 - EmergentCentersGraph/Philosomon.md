@@ -1,0 +1,6 @@
+- Philosomon - the art game of producing conceptual creatures which can then be propagated in any manner.
+- Developed by Chongha Peter Lee, and tinkered out with various artists and students in an art residency in Amherst, VA, spanning 6/14/2021 - 7/2/2021.
+- Stemming from play with many artists prior of the [[Planetary Research Assemblage]]
+- Philosomon - the art game of producing conceptual creatures which can then be propagated in any manner.
+- Developed by Chongha Peter Lee, and tinkered out with various artists and students in an art residency in Amherst, VA, spanning 6/14/2021 - 7/2/2021.
+- Stemming from play with many artists prior of the [[Planetary Research Assemblage]]
