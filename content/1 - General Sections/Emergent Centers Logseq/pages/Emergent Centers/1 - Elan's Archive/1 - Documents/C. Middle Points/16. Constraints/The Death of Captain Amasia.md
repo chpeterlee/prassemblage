@@ -1,0 +1,41 @@
+1. Funeral: Burial in Oksanas basement. Has a video monitor
+2. Video monitor playing back 2 channels:
+
+- Antifragile Agent P. Roxy addressing grave | [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]s grave.
+  
+  3. Philosophical Eulogy to fragile death and thought by Infamouse and Cooking show.
+  4. Mamasia's children's book, made of [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]]'s works and superpositional performances. 
+  5. The MoASS video.
+  6. NFTs for the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2B - EmCenOrdered/5 - Organizations/Entities/We Have a Transnational Dream]] and [[Neganthropomorphosis/pages/2 - EmergentCentersGraph/Playtheon]]. 
+  7. Part of AMbien and Neg Summit.
+  8. The Cool School: a series of negative commands.
+- ##### Cool School's Children's Book for Adults in Societies With Childish Intellectual Cultures, Like the U.S. and Canada, (Written by Quantum Werewolfeminist, Mixed Speculative Artist and Chef, and 500 Year Old Dead Mother, Mamasia):
+  
+  "Hey Kiddo. You are Going to Die and Think. Here's How to Grow Out of the Toxicity of Boomer/Gen X/Y/Z Intellectual Childishness That You Were Unfortunately Irradiated With, To Become a Less Fragile Human. Because All the Cool Kids Are Doing It. DON'T YOU WANT TO BE COOL (or at the very least, die a little bit less stupid? The afterlife is a society of [[Negentropic]] knowledge, which is the opposite of current societies of entropy - you'll have better romantic relationships when you're dead if you build your [[Negentropic]] rep now. Just saying)."
+- #### Cool School's Children's Book for the Sprouts, Young Vegetables Growing Up In Societies With Childish Intellectual Cultures Due To Deprivation By Neoliberalism (Written by Quantum Werewolfeminist, Mixed Speculative Artist and Chef, and 500 Year Old Dead Mother, Mamasia):
+  
+  "Hey Kiddo, Bad News, Good News. You're Going to Die, and You're Going to Think. Here's Some Speculative Offerings on How to Do Both Less Fragilely. Again, They are Optional.
+  
+  Payoff? If you're less fragile, you will have less:
+- Depression
+- Stupid petty fights with colleagues
+- Awkwardness in parties
+- Inaccuracy with complex systems and ideas
+- Ethical gaffes
+  
+  And you will come to terms with the fact that you grew up during neoliberalism, which basically stunted humans development for massive amounts of human, and hopefully become self aware enough to minimize your contributions to the fragility of the planet, which will result in less humans and cute animals and soulful plants dying.
+  
+  But that's up to you! (And either governments or vigilantes, of either the physical kind or the cyber kind, to regulate you).
+  
+  
+  
+  
+  
+  
+  Next guest from the Cool School:
+  
+  Treepac; a quantum-aware tree who was a former Grey Beret of [[Regener888 (Main)]] and Speculative Rapper of the [[Intercity Planetary]] and O.G. of Trop.
+  
+  Treepac was one of the top captains of one of the ICP's largest [[Artel]]s on the planet. Rumor has it that Treepac dealt in such large quantities of [[Negentropic]]s, that when the DEA raided one of his condo's, accidentally triggering a hard drive with a video meme artwork about the [[Neganthropocene]] - the entire unit stopped and listened to the entirety of the YouTube debate between Antifragile Agent P. Roxy Sloterdijk and [[Bernard Stiegler]]. 
+  
+  Also, in Riker's Island prison, Treepac wrote the now classic speculative rap track titled "I Bet Quantum Photosynthesis Rules Everything Around Me", which detailed a code of street life centered around emergent speculative [[Artel]]s trafficking [[Negentropic]]s across the planet, utilizing statistical review protocols to self regulate their regions.
