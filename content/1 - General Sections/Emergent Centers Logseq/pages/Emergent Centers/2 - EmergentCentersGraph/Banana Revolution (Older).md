@@ -1,0 +1,119 @@
+- 1. Intro to complexity science.
+	- Corona
+	- Taleb / Josh Wolfe
+	- Synthesis
+	- Not that hard.
+- 2. More is different:
+	- Source: https://www.tkm.kit.edu/downloads/TKM1_2011_more_is_different_PWA.pdf
+	- 1. Photons & Quantum Mechanics
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FXMph4GHw28.png?alt=media&token=a94996db-0c3e-4004-98db-5613e5e0ae26)
+	- 2. Theory of Broken Symmetry
+	- 3. Intensive & Extensive Science
+	- 4. Mechanism: quantum inversion
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2Ftct7_Row18.png?alt=media&token=59954baf-69d6-468f-9233-2f1fec50ac7b)
+		- Basically details that quantum tunnelling occurs at a minimum of 3 x 10^10 per second lol.
+		- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FttSuOqR99w.png?alt=media&token=df4b46e5-ae3a-4d6e-8ff8-b90d2ba462a7)
+	- 5. Chemistry: Relations of scale
+		- LD50 for cyanide vs. [x]
+	- 6. Radical Emergence - simulation - reduced cost, greater adjacent possibilities, requires more synthesis of links
+	- 7. Negentropy & Universal Attractor - cocktail of measuring devices.
+- 3. **Different is More is Post-Fragile Art:**
+	- **Different is More is Post-Fragile Art:**
+		- {{embed  ((86d6a321-6283-4e17-bf66-fc823d63ec5f))}}
+		- {{embed  ((367c907e-278a-4e64-8a2e-e24ac978cde3))}}
+		- {{embed  ((614c7a21-720f-4100-91a0-cbceda484b21))}}
+		- 4. Thus, the definition of "different" is actually synonymous with transmissions of information creating small flucutations resulting in a broken symmetry in a [[State Space AI]], inevitably enabling a more complex steady state in unprestateable ways. Thus, "different" is not simply a symmetrical negation of a given system (although the negation of a particular function or the de-allocation of resources to a particular function may be included in the mechanism sustaining a more complex steady state) - it is the assymetrical breaking of a state space produced by small fluctuations caused by the transmission of information.
+		- 5. If by necessity, "difference" is inherently a small fluctuation composed with a majority ratio of information to material transformation, say 80% to 20%, - how then can it be "more"?  Let's examine the case of a few individual fish in a poulation evolving a swim bladder which has no apparent increased function in aquatic environments. However, as it stumbles into an adjacent possible environment - a small beach - it realizes that the swim bladder allows it to function as an amphibian for constrained amounts of time. It realizes that its photo-sensitive eyes, which can discern information from a distance of about 10 feet underwater - now can gain information from distances upwards of 30 km or more on land. It quickly begins to identify novel sources of food - and organizes a mixed diet which allows it to reduce the amount of energy it expends on obtaining sustenance and increase its free time.
+		- 6. The minority of the fish population with this extra adaptation now exert much less energy on its routine cycles of obtaining sustenance, have an increased intake of information, and more free time and energy to allocate to exploration of new organization of relations within their own body, organizational possibilities with other entities, and possible discovery of new complementary niches with the wider ecology.
+		- 7. Thus, we can return to the idea of "Different is More" - by articulating a simple dual-sided criteria: energy, matter, information and temporal cost reduction for a function (such as obtainining sustenance), and a gain in information exposure, connectivity, and synthesis with new adjacent possible niches. The swim bladder allowed for a diversification of food sources which reduced costs of routine cycles and increased exposure to and synthesis of novel complementary niches.
+		- 8. In modern culture, "Different", particularly in specific misinterpretations of Liberalism on the Left is simply seen as a symmetrical opposite of any given thing. Different from "face" is "hand'; not an understanding of the differences that comprise the complexity of a face - and then positing a further complexification which reduces costs and increases connectivity to new niches (such as a face made of squid skin, able to function very much so like a digital screen and emit electromagnetic waves of varying frequencies to signal to varying devices or non-humans). The closest current colloquial vocabulary to identifying a difference that is "more" is known as a "Paradigm Shift", however in the context of industrial society, it's usually understood as simply cost reduction - rather than also a complementary synthesis of multiple niches. Recently, contemporary art was supposed to be an arena which still valued and produced paradigm shifts; however, due to various reasons, many of its interfaces were repurposed for either social work, capital, or minor variations for cultural production. Hence, in a networked ecology - we can simply just define an arena to revalue paradigm shifts as "Post-fragile Art" - art that is explicitly designed as a paradigm shift which can be judged in terms of its simultaneous reduction of costs and increase in complementary synthesis. 
+		  
+		  Simularly, a prototype paradigm shift can be simulated to be [[inclusively scalable]], also known as producing [[exponential growth]] without destruction or homogenization. A paradigm shift can be verified through an accurate valuation with proper metrics, it does not have to be translated for net entropic systems of [[inference]]s necessarily unless it is intended to be adopted by them. The term [[Post-fragile Art]] is a strategic discursive maneuver intended to connect with an increasingly better distributed discourse of subjective [[fragility]] and also structural [[Antifragility]] as popularized by [[Nassim Taleb]].
+		  
+		  9. There are structurally sound interpretations of the Left and Liberalism which also retain its positive enabling capacities and understanding of incapacities, however due to the mistaken evisceration of the analytic tradition, the skillful discernment and construction of a sound articulation is rare today. Ironically, there is simultaneously a fascination with Eastern philosophy, which is actually simply just sound analytic construction with fundamental mathematic algebraic processes. The cultural battle today is not about one ideology vs. another or a human individual vs. another human individual; it is simply to clearly differentiate what is an inaccurate [[inference]] within a given context and what is accurate.  A simple error-checking mechanism, coupled with basic probabilistic calculators, preferably automated, would do wonders. In fact - it's not at all outlandish to propose that the past 50 years of culture was simply just a struggle to disseminate increasingly more accessible and flexible tools for computing possibility and probability - thus reducing the amount of entropy across the planet and enabling more complementary synthesis of adjacent possible niches.
+		- 10. The current most promising front discursively, is [[Nassim Taleb]]'s current phrasing of the new various mathematical and analytic tools as [[Antifragility]], with a combination of fictional beasts such as [[the Black Swan]]. All of these tools are 3rd or 4th generation rephrasings of foundational concepts of [[Complexity Science]] produced more than 50 years ago. On the historical end, [[Manuel De Landa]] has been steadily synthesizing for decades, a functional trans-cultural ontology for the Humanities to contextualize itself within the planet's systems, ecological, social and intellectual. It is from this non-linear foundation that the historical subject of the [[Intercity Planetary]] is constructed - which traces all humans back to a pivotal moment in the 15th Century, when an act of unprecedented planetary thought occured which produced and articulated unprecedented complexifications for humans across the planet compiled in the text [[Utopia]] amongst many others in a planetary Humanist movement, with contributions synthesized from life and discussions across Proto Indo-Europeans, Afro-Asians, Asia-Amerindians, scholarly and artistic, performative and visual, oral and print media. Which holds hope, because this explosion of articulation occurred without an internet.
+		- 11. Phenomena of Accurate [[inference]]s
+		- 12. Allowing of net entropic systems confined to the area of a single individual system; other systems have the right to re-balance the situation. This is
+	- 8. Call to Action:
+		- 1. Same is Fragile, Scale Must Change or Die
+			- Breeding & Human Giant
+				- Military & institutions.
+				- Current Planetary Infoburger.
+				- Metaverse is simply repackaging of puzzles of open source.
+				- New things are just started as information colliding as bets and artworks 80% info - pieced into puzzles. Which are what white papers, new movements and etc. are.
+				- Turn Tables.
+		- 2. Post-fragility Aesthetics:
+			- Swim bladder in adjacent possible. Keys & Locks.
+			- Reduction of costs & waste, increase in complexity and connectivity via 80% information transfer = Negentropic Natural Selection.
+		- 3. Paradigm Shifts in art & Science
+			- Bifurcation of state space. Art praxis as inferential gaze
+			- Quantum computers
+		- 4. Philosophy = more flexible admin
+			- more adjacent possibilities, less waste. more fluid synthesis of [[inference]]s, less damage.
+			- Newdle Endgamers - what's the point? Infinite complexification wrt to ethics.
+				- Miyazaki.
+			- more complex and interweaving processes = Superpositional Party.
+		- 5. Math = decentralized algorithmic accuracy
+			- knots & pebbles
+			- vs. time complexity of annealing
+		- 6. Who we are:
+			- **Intercity Planetary** = Caucasus region, crossing ground of proto Indo-Europeans, Amasiandian. Future of Amasia. Teotihuacan, Edo Period, China, Korea, Islamic Empire, Autonomous Cities of Europe, African indigenous fractal villages.
+			- **Tragedy of middles** = 500 years. 15th Century humanism > land > capital > land (government slapped on) > humanism (1970's Germany).
+			- Teotihuacan, African fractal villages, Chinese media hybridization, Japan Edo Period. Korean Anarchists. Euro Autonomous cities. Islamic empire.
+		- 7. Antifragile Peace
+			- Present crises - world war stupidity.
+			- opportunity: $1 Trillion Market. private entities building civic infrastructure - co-op structure. [[Accurate Collar]]. City on a chill - 80% information, 20% material transformation (but no hierarchy), just choice.
+				- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FSDz_tcG9pv.31.39%20AM.png?alt=media&token=8accd4fe-f7c4-45a8-a48b-352be1abe5ea)
+		- [[Healightenment]]
+			- 1. Support [[Neon Madonna]] & [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] his faith, the [[Church of the Superpositional State]] & his sexuality as a [[Quantumsexual]] to spread the [[Healightenment]] composed of [[3. Antifragile Peace Accord & the 100 Year Plan]].
+			- 2. Bettor Art: UBE Co-op bets & the New S.A. [[Photonverse]]: Return of the Intercity Planetary and the #HeadButtTheApocalypse movement with the [[SaintNet]], [[Angelologists]], [[Assayers]], [[Dragon Kings]], [[Grey Knights]], [[M.A.G.E.]]'s, the [[M.A.D.E.]]'s and [[Newdle Endgamers]].
+			- 3. Until We Are Worth More Than Gold & Marrying the [[Universal Attractor]] in the DMZ.
+			- 4. Back From 2122, Writing the [[The Art of Peace]] & [[100 Years of Nonlinear Future History]], the [[Birth of an Invagination: Until We Are Worth More Than Gold]] and [[The Mompire Strikes Back]] for the [[Neganthropomorphosis/pages/2B - EmCenOrdered/Organizations/Neganthropocene Summit]] via [[2. State Space Exhibitions & The Impossible Embassy]]. 
+			  
+			  Raising funds for the Superpositional Party, 100 Year Plan & Impossible Embassy & Mobile Studio & ICR. PRA, EFI, [[Postwork Capital]], AF Agency, Amasian.co.
+			- 5. [[The Amasian Post]], [[Notflix]] and the [[The Least Stupid Presidential Campaign]] to make a [[City on a Chill]] more [[Accurate Collar]] for [[Amasian.co]], based on the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]] prototype.
+			- 6. Demand less McDonald's Fragileburgers, more Antifragile [[Infoburgers]]! Nail the Most Sus!
+			- 7. Here's the roadmap: Shows & Quests
+			- 8. Buy Paradigm Thrift MageMade clothing, computers, cartoons, consults, cars, creativity, crazinews! (integrate in)
+			- Encrypted Block
+				- 1. Same is Fragile, Scale Must Change or Die
+					- Breeding & Human Giant
+						- Military & institutions.
+						- Current Planetary Infoburger.
+						- Metaverse is simply repackaging of puzzles of open source.
+						- New things are just started as information colliding as bets and artworks 80% info - pieced into puzzles. Which are what white papers, new movements and etc. are.
+						- Turn Tables.
+				- 2. Post-fragility Aesthetics:
+					- Swim bladder in adjacent possible. Keys & Locks.
+					- Reduction of costs & waste, increase in complexity and connectivity via 80% information transfer = Negentropic Natural Selection.
+				- 3. Paradigm Shifts in art & Science
+					- Bifurcation of state space. Art praxis as inferential gaze
+					- Quantum computers
+				- 4. Philosophy = more flexible admin
+					- more adjacent possibilities, less waste. more fluid synthesis of [[inference]]s, less damage.
+					- Newdle Endgamers - what's the point? Infinite complexification wrt to ethics.
+						- Miyazaki.
+					- more complex and interweaving processes = Superpositional Party.
+				- 5. Math = decentralized algorithmic accuracy
+					- knots & pebbles
+					- vs. time complexity of annealing
+				- 6. Who we are:
+					- **Intercity Planetary** = Caucasus region, crossing ground of proto Indo-Europeans, Amasiandian. Future of Amasia. Teotihuacan, Edo Period, China, Korea, Islamic Empire, Autonomous Cities of Europe, African indigenous fractal villages.
+					- **Tragedy of middles** = 500 years. 15th Century humanism > land > capital > land (government slapped on) > humanism (1970's Germany).
+					- Teotihuacan, African fractal villages, Chinese media hybridization, Japan Edo Period. Korean Anarchists. Euro Autonomous cities. Islamic empire.
+				- 7. Antifragile Peace
+					- Present crises - world war stupidity.
+					- opportunity: $1 Trillion Market. private entities building civic infrastructure - co-op structure. [[Accurate Collar]]. City on a chill - 80% information, 20% material transformation (but no hierarchy), just choice.
+						- ![](https://firebasestorage.googleapis.com/v0/b/firescript-577a2.appspot.com/o/imgs%2Fapp%2FNeganthropoceneSummit%2FSDz_tcG9pv.31.39%20AM.png?alt=media&token=8accd4fe-f7c4-45a8-a48b-352be1abe5ea)
+				- 8. Call to Action:
+					- [[Healightenment]]
+						- 1. Support [[Neon Madonna]] & [[pages/Fragilicide-live/pages/2 - EmergentCentersGraph/Captain Amasia]] his faith, the [[Church of the Superpositional State]] & his sexuality as a [[Quantumsexual]] to spread the [[Healightenment]] composed of [[3. Antifragile Peace Accord & the 100 Year Plan]].
+						- 2. Bettor Art: UBE Co-op bets & the New S.A. [[Photonverse]]: Return of the Intercity Planetary and the #HeadButtTheApocalypse movement with the [[SaintNet]], [[Angelologists]], [[Assayers]], [[Dragon Kings]], [[Grey Knights]], [[M.A.G.E.]]'s, the [[M.A.D.E.]]'s and [[Newdle Endgamers]].
+						- 3. Until We Are Worth More Than Gold & Marrying the [[Universal Attractor]] in the DMZ.
+						- 4. Back From 2122, Writing the [[The Art of Peace]] & [[100 Years of Nonlinear Future History]], the [[Birth of an Invagination: Until We Are Worth More Than Gold]] and [[The Mompire Strikes Back]] for the [[Neganthropomorphosis/pages/2B - EmCenOrdered/Organizations/Neganthropocene Summit]] via [[2. State Space Exhibitions & The Impossible Embassy]]. 
+						  
+						  Raising funds for the Superpositional Party, 100 Year Plan & Impossible Embassy & Mobile Studio & ICR. PRA, EFI, [[Postwork Capital]], AF Agency, Amasian.co.
+						- 5. [[The Amasian Post]], [[Notflix]] and the [[The Least Stupid Presidential Campaign]] to make a [[City on a Chill]] more [[Accurate Collar]] for [[Amasian.co]], based on the [[1 - General Sections/Emergent Centers Logseq/pages/Emergent Centers/2 - EmergentCentersGraph/Antifragile Agency]] prototype.
+						- 6. Demand less McDonald's Fragileburgers, more Antifragile [[Infoburgers]]! Nail the Most Sus!
+						- 7. Here's the roadmap: Shows & Quests
+						- 8. Buy Paradigm Thrift MageMade clothing, computers, cartoons, consults, cars, creativity, crazinews! (integrate in)
